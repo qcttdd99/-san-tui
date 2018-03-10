@@ -9,6 +9,8 @@
 
  [动态网](http://d99.b66c.cf/3010)
 
+ [动态网](http://t.cn/R64Lwzz)
+
  [退党网](http://d99.b66c.cf/8)
 
  [聚缘阁禁闻导航](http://d99.b66c.cf/news.php)
