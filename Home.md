@@ -19,7 +19,7 @@
 
  [禁闻网](http://d99.b66c.cf/16/254)
 
- [聚缘阁](http://j88.b98g.ga/)
+ [聚缘阁](http://j88.b98g.ga/home)
 
  [聚缘阁视频网](http://j88.b98g.ga/tv)
 
