@@ -11,17 +11,17 @@
 [聚缘阁代理论坛](http://b2.b98g.ga)
 
 
- [动态网](http://d99.b66c.cf/3011)
+ [动态网](http://sj88.fe34.cf/303311)
 
- [动态网](http://c44.b66c.cf/jyg)
+ [动态网](http://sj88.fe34.cf/jyg)
 
  [动态网](http://t.cn/R64Lwzz)
 
  [动态网](http://t.qgoaiyb.gq/01dtw)
 
- [退党网](http://d99.b66c.cf/8/654)
+ [退党网](http://sj88.fe34.cf/8/654)
 
- [禁闻网](http://d99.b66c.cf/16/254)
+ [禁闻网](http://sj88.fe34.cf/16/254)
 
  [聚缘阁](http://j88.b98g.ga/home)
 
