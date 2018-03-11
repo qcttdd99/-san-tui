@@ -17,6 +17,8 @@
 
  [聚缘阁禁闻导航](http://d99.b66c.cf/news.php)
 
+ [聚缘阁代理论坛](http://b2.b98g.ga)
+
 
 
  [建议手机下载安装聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/jygV2.2.2017082401.apk)
