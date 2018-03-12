@@ -8,10 +8,6 @@
 
 **本站网址：https://x.co/2355**
 
-[聚缘阁代理论坛](http://b2.b98g.ga)
-
-
-
 
  [动态网](http://sj88.fe34.cf/jyg)
 
@@ -26,6 +22,8 @@
  [聚缘阁](http://j88.b98g.ga/home)
 
  [聚缘阁视频网](http://j88.b98g.ga/tv)
+
+ [聚缘阁代理论坛](http://b2.b98g.ga)
 
  [聚缘阁禁闻导航](http://d99.b66c.cf/news.php)
 
