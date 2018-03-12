@@ -25,7 +25,7 @@
 
  [聚缘阁代理论坛](http://b2.b98g.ga)
 
- [聚缘阁禁闻导航](http://d99.b66c.cf/news.php)
+ [聚缘阁禁闻导航](http://d33.fm98.cf/news.php)
 
  
 
