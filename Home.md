@@ -13,7 +13,7 @@
 
  [动态网](http://t.cn/R64Lwzz)
 
- [动态网](http://t.qgoaiyb.gq/01dtw)
+ [动态网](http://r.qgoaiyb.gq/01dtw)
 
  [退党网](http://sj88.fe34.cf/8/654)
 
