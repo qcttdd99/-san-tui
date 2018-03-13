@@ -19,6 +19,8 @@
 
  [禁闻网](http://sj88.fe34.cf/16/254)
 
+ [新唐人](http://sj88.fe34.cf/5)
+
  [聚缘阁](http://j88.b98g.ga/home)
 
  [聚缘阁视频网](http://j88.b98g.ga/tv)
