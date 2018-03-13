@@ -10,7 +10,7 @@
 
  [动态网](http://sj88.fe34.cf/jyg)
 
- [动态网](http://sj88.fe34.cf/)
+ [动态网](https://dou.bz/3cUgzy)
 
  [动态网](http://t.cn/R64Lwzz)
 
