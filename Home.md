@@ -16,19 +16,7 @@
 
  [动态网](http://r.qgoaiyb.gq/01dtw)
 
- [退党网](http://sj88.fe34.cf/8/654)
 
- [禁闻网](http://sj88.fe34.cf/16/254)
-
- [新唐人](http://sj88.fe34.cf/5)
-
- [聚缘阁](http://j88.b98g.ga/home)
-
- [聚缘阁视频网](http://j88.b98g.ga/tv)
-
- [聚缘阁代理论坛](http://b2.b98g.ga)
-
- [聚缘阁禁闻导航](http://d33.fm98.cf/news.php)
 
  
 
