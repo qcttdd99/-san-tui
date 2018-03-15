@@ -8,7 +8,7 @@
 
 **本站网址：https://x.co/2355**
 
- [动态网](http://123.b66f.tk/jyg)
+ [动态网](http://123.b66f.tk/)
 
  [动态网](https://dou.bz/3cUgzy)
 
