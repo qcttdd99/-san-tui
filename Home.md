@@ -21,4 +21,3 @@
  
 
 
- [建议手机下载安装聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/jygV2.2.2017082401.apk)
