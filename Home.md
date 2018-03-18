@@ -8,7 +8,6 @@
 
 **本站网址：https://x.co/2355**
 
-** 代理即将在近日恢复，敬请关注**
 
  [聚缘阁代理](http://jyghao.fmbb.cf/jyg/)
 
@@ -18,7 +17,7 @@
 
  [动态网](http://r.qgoaiyb.gq/01dtw)
 
-http://jyghao.fmbb.cf/jyg/
+
 
  
 
