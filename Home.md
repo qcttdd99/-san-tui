@@ -13,6 +13,12 @@
 
  [动态网](http://r.qgoaiyb.gq/01dtw)
 
+ [聚缘阁](http://wz.b66f.tk/home)
+
+ [聚缘阁视频](http://wz.b66f.tk/tv)
+
+
+
  [聚缘阁代理安卓版]( https://github.com/yuange99/4/raw/master/jygV2.3.2018012601.apk)
 
 
