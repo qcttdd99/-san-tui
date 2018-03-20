@@ -19,7 +19,7 @@
 
 
 
- [聚缘阁代理安卓版]( https://github.com/yuange99/4/raw/master/jygV2.3.2018012601.apk)
+
 
 
 
