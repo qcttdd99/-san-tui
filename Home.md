@@ -11,7 +11,7 @@
 
  [聚缘阁代理](http://jyghao.fmbb.cf/jyg/)
 
- [动态网](http://r.qgoaiyb.gq/01dtw)
+ [动态网](http://jyghao.fmbb.cf/?201846)
 
  [聚缘阁](http://wz.b66f.tk/home)
 
