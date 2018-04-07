@@ -13,6 +13,10 @@
 
  [动态网](http://jyghao.fmbb.cf/?201846)
 
+ [退党网](http://jyghao.fmbb.cf/?id=8)
+
+ [大纪元](http://jyghao.fmbb.cf/?id=7)
+
  [聚缘阁](http://wz.b66f.tk/net)
 
  [聚缘阁视频](http://wz.b66f.tk/hv)
