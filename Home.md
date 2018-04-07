@@ -13,9 +13,9 @@
 
  [动态网](http://jyghao.fmbb.cf/?201846)
 
- [聚缘阁](http://wz.b66f.tk/home)
+ [聚缘阁](http://wz.b66f.tk/net)
 
- [聚缘阁视频](http://wz.b66f.tk/tv)
+ [聚缘阁视频](http://wz.b66f.tk/hv)
 
 
 
