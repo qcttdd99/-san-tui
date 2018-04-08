@@ -9,7 +9,7 @@
 **本站网址：https://x.co/2355**
 
 
- [聚缘阁代理](http://jyghao.fmbb.cf/kzg/)
+ [聚缘阁代理](http://jyghao.fmbb.cf/jyg/)
 
  [动态网](http://jyghao.fmbb.cf/?201846)
 
