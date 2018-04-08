@@ -17,6 +17,10 @@
 
  [大纪元](http://jyghao.fmbb.cf/?id=7)
 
+ [明慧网](http://jyghao.fmbb.cf/?id=3)
+
+ [禁闻网](http://jyghao.fmbb.cf/?id=16)
+
  [聚缘阁](http://wz.b66f.tk/net)
 
  [聚缘阁视频](http://wz.b66f.tk/hv)
