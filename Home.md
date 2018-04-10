@@ -9,7 +9,7 @@
 **本站网址：https://x.co/2355**
 
 
- [聚缘阁代理](http://e3.99emd.com/jyg/)
+[聚缘阁代理入口](http://fym.fs32.tk/)
 
  [动态网](http://e3.99emd.com/?id=7365)
 
