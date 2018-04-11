@@ -11,7 +11,7 @@
 
 [聚缘阁代理入口](http://fym.fs32.tk/)
 
-[海外禁歌](http://wz.b66f.tk/home/t-22-27)
+[无界网](http://wz.b66f.tk/?2)
 
  [动态网](http://e3.99emd.com/?id=7365)
 
