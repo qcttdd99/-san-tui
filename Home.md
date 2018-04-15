@@ -12,17 +12,17 @@
 
 [聚缘阁代理入口](http://fym.fs32.tk/)
 
- [动态网](http://e3.99emd.com/?id=7365)
+ [动态网](http://e.e33.pw/?id=7365)
 
- [退党网](http://e3.99emd.com/?id=8)
+ [退党网](http://e.e33.pw/?id=8)
 
- [大纪元](http://e3.99emd.com/?id=7)
+ [大纪元](http://e.e33.pw/?id=7)
 
- [明慧网](http://e3.99emd.com/?id=3)
+ [明慧网](http://e.e33.pw/?id=3)
 
- [禁闻网](http://e3.99emd.com/?id=16)
+ [禁闻网](http://e.e33.pw/?id=16)
 
- [看中国](http://e3.99emd.com/?id=11)
+ [看中国](http://e.e33.pw/?id=11)
 
 
 
