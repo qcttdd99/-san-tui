@@ -1,23 +1,32 @@
+
 ## **聚缘阁代理**
 
 **轻松翻墙，从聚缘阁开始**
 
-【公告】本站代理请使用ie、火狐及google浏览器访问。。。
+【公告】聚缘阁代理新镜像，欢迎使用及推广！_2018/3/18_
 
 如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。
 
-**本站网址：https://x.co/2355**
 
- [聚缘阁视频网](http://a9.jyg.host/tv)
 
- [动态网](http://a9.jyg.host/?id=7365)
 
- [退党网](http://a9.jyg.host/?id=8)
 
- [大纪元](http://a9.jyg.host/?id=7)
+ [动态网](http://fym.fs32.tk/?999)
 
- [明慧网](http://a9.jyg.host/?id=3)
+[退党网](http://fym.fs32.tk/?id=8)
 
- [禁闻网](http://a9.jyg.host/?id=16)
+[明慧网](http://fym.fs32.tk/?id=3)
 
- [看中国](http://a9.jyg.host/?id=11)
+[大纪元](http://fym.fs32.tk/?id=7)
+
+
+[看中国](http://fym.fs32.tk/?id=11)
+
+
+ 
+
+
+
+
+
+
