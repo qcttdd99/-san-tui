@@ -10,8 +10,6 @@
 
  [聚缘阁视频网](http://a9.jyg.host/tv)
 
-[聚缘阁代理入口](http://fym.fs32.tk/)
-
  [动态网](http://a9.jyg.host/?id=7365)
 
  [退党网](http://a9.jyg.host/?id=8)
