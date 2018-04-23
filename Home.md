@@ -15,6 +15,8 @@
 
 [退党网](http://fym.fs32.tk/?id=8)
 
+[新唐人](http://fym.fs32.tk/?id=5)
+
 [明慧网](http://fym.fs32.tk/?id=3)
 
 [大纪元](http://fym.fs32.tk/?id=7)
@@ -22,6 +24,7 @@
 
 [看中国](http://fym.fs32.tk/?id=11)
 
+[禁书网](http://fym.fs32.tk/?id=16)
 
  
 
