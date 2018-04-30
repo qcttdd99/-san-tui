@@ -7,6 +7,8 @@
 
 如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。
 
+[聚缘阁视频网](https://s3-ap-southeast-1.amazonaws.com/jyg-sp/index.html)
+
 [聚缘阁视频网](http://ju9.6433.cf/tv)
 
 [聚缘阁](http://jjt2.f44e4.cf/home)
