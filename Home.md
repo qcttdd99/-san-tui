@@ -2,7 +2,7 @@
 
 
 
-[聚缘阁视频网](http://ju9.6433.cf/tv)
+[聚缘阁视频网](http://ju9.6433.cf/9/tv)
 
 [聚缘阁](http://jjt2.f44e4.cf/home)
 
