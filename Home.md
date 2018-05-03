@@ -2,7 +2,7 @@
 
 
 
-[聚缘阁视频网](http://fym.fs32.tk/tv)
+[聚缘阁视频网](http://jyg.fs32.tk/tv)
 
 
 
