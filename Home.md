@@ -2,7 +2,7 @@
 
 
 
-[聚缘阁视频网](http://jyg.fs32.tk/tv)
+[新唐人直播](http://ac.b66f.tk/jyg.html)
 
 
 
