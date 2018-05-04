@@ -1,11 +1,11 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
 
-[聚缘阁](http://ac.b66f.tk/home)
+[聚缘阁](http://m22.b59v.ml/home)
 
-[聚缘阁视频网](http://ac.b66f.tk/tv)
+[聚缘阁视频网](http://m22.b59v.ml/tv)
 
-[新唐人直播](http://ac.b66f.tk/jyg.html)
+[新唐人直播](http://m22.b59v.ml/jyg.html)
 
 
 
