@@ -5,8 +5,6 @@
 
 [聚缘阁视频网](http://m22.b59v.ml/tv)
 
-[新唐人直播](http://m22.b59v.ml/jyg.html)
-
 
 
  [动态网](http://m22.b59v.ml/e/?hgf)
