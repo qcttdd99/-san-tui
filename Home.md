@@ -15,7 +15,7 @@
 
 [明慧网](http://t8.b66f.tk)
 
-[大纪元](http://jt8.b66f.tk)
+[大纪元](http://t8.b66f.tk)
 
 
 [看中国](http://t8.b66f.tk)
