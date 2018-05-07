@@ -11,7 +11,7 @@
 
 [新唐人](https://cw.jyg9.macao.net/?id=5)
 
-[明慧网](https://cw.jyg9.macao.net/?id=3)
+[明慧网](https://sh8ouji.ee99.qww68.com/?id=3)
 
 [大纪元](https://sh8ouji.ee99.qww68.com/?id=7)
 
