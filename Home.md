@@ -13,7 +13,7 @@
 
 [明慧网](https://cw.jyg9.macao.net/?id=3)
 
-[大纪元](https://cw.jyg9.macao.net/?id=7)
+[大纪元](https://sh8ouji.ee99.qww68.com/?id=7)
 
 
 [看中国](https://cw.jyg9.macao.net/?id=11)
