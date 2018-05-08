@@ -1,6 +1,6 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
- [聚缘阁视频网](http://j99.214g.gq/e/)
+ [聚缘阁视频网](http://jygtv.cer4.ga/tv/)
 
  [聚缘阁视频网](http://j99.214g.gq/tv/)
 
