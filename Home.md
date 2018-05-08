@@ -2,6 +2,8 @@
 
  [聚缘阁视频网](http://j99.214g.gq/e/)
 
+ [聚缘阁视频网](http://j99.214g.gq/tv/)
+
  [动态网](http://j99.214g.gq/dtw/?bb)
 
 [退党网](http://j99.214g.gq/dtw/?id=8)
