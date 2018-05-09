@@ -2,7 +2,7 @@
 
  [聚缘阁视频网](http://jygtv.cer4.ga/tv/)
 
- [聚缘阁](http://j55.u77t.cf)
+ [聚缘阁](http://5.jvvd.androvial.com.ar/)
 
  [动态网](http://j99.214g.gq/dtw/?bb)
 
