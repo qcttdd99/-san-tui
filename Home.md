@@ -6,7 +6,7 @@
 
  [聚缘阁一站](https://333ee.cer4.ga/)
 
- [聚缘阁二站](https://hao.jyg2.ml/)
+ [聚缘阁二站](https://bcce.cee4.gq/)
 
  [动态网](http://j99.214g.gq/dtw/?bb)
 
