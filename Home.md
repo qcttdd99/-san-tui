@@ -4,7 +4,7 @@
 
  [聚缘阁视频网](https://jygtv.cer4.ga/tv/)
 
- [聚缘阁一站](https://333ee.cer4.ga/)
+ [聚缘阁一站](http://e44t.511as4.ml/)
 
  [聚缘阁二站](https://bcce.cee4.gq/)
 
