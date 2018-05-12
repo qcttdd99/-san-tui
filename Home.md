@@ -2,7 +2,7 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
- [聚缘阁视频网](https://jygtv.cer4.ga/tv/)
+ [聚缘阁视频网](https://jyg8.511as4.ml/tv/)
 
  [聚缘阁一站](http://24.jyghome.macao.net/)
 
