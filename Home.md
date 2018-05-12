@@ -4,7 +4,7 @@
 
  [聚缘阁视频网](https://jyg8.511as4.ml/tv/)
 
- [聚缘阁一站](http://24.jyghome.macao.net/)
+ [聚缘阁一站](https://6588.511as2.ga/)
 
  [聚缘阁二站](http://8.jyghome.macao.net/)
 
