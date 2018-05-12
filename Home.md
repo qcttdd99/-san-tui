@@ -6,7 +6,7 @@
 
  [聚缘阁一站](http://24.jyghome.macao.net/)
 
- [聚缘阁二站](https://bcce.cee4.gq/)
+ [聚缘阁二站](http://8.jyghome.macao.net/)
 
  [动态网](http://j99.214g.gq/dtw/?bb)
 
