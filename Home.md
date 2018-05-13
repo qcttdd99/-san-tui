@@ -4,9 +4,9 @@
 
  [聚缘阁视频网](http://ee12.511as4.ml/tv/)
 
- [聚缘阁一站](https://6588.511as2.ga/)
+ [聚缘阁一站](http://j99.214g.gq/tz/)
 
- [聚缘阁二站](https://ccvb.511as2.ga)
+ [聚缘阁二站](http://j99.214g.gq/tz/)
 
  [动态网](http://j99.214g.gq/dtw/?bb)
 
