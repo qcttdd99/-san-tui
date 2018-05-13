@@ -6,7 +6,7 @@
 
  [聚缘阁一站](https://6588.511as2.ga/)
 
- [聚缘阁二站](http://8.jyghome.macao.net/)
+ [聚缘阁二站](http://ccvb.511as2.ga)
 
  [动态网](http://j99.214g.gq/dtw/?bb)
 
