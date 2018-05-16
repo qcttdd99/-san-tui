@@ -2,6 +2,8 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
+# 代理维护升级中。。。。暂停服务。。。
+
  [聚缘阁视频网](http://u77.cer4.ga/tv/)
 
  [聚缘阁一站](https://j99.214g.gq/tz/)
