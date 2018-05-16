@@ -10,19 +10,19 @@
 
  [聚缘阁二站](https://j99.214g.gq/tz/)
 
- [动态网](https://j99.214g.gq/cx/?bb)
+ [动态网](https://j99.214g.gq/j9/?hfe)
 
-[退党网](http://j99.214g.gq/cx/?id=8)
+[退党网](http://j99.214g.gq/j9/?id=8)
 
-[新唐人](https://j99.214g.gq/cx/?id=5)
+[新唐人](https://j99.214g.gq/j9/?id=5)
 
-[明慧网](https://j99.214g.gq/cx/?id=8)
+[明慧网](https://j99.214g.gq/j9/?id=8)
 
-[大纪元](http://j99.214g.gq/cx/?id=7)
+[大纪元](http://j99.214g.gq/j9/?id=7)
 
 
-[看中国](http://j99.214g.gq/cx/?id=11)
+[看中国](http://j99.214g.gq/j9/?id=11)
 
-[禁书网](http://j99.214g.gq/cx/?id=16)
+[禁书网](http://j99.214g.gq/j9/?id=16)
 
  
