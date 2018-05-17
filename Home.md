@@ -4,9 +4,9 @@
 
  [聚缘阁视频网](http://ewws.ucde.tk/tv/)
 
- [聚缘阁一站](https://j99.214g.gq/tz/)
+ [聚缘阁一站](https://j99.214g.gq/jt/)
 
- [聚缘阁二站](https://j99.214g.gq/tz/)
+ [聚缘阁二站](https://j99.214g.gq/jt/)
 
  [动态网](https://j99.214g.gq/j9/?hfe)
 
