@@ -2,7 +2,7 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
- [聚缘阁视频网](http://u77.cer4.ga/tv/)
+ [聚缘阁视频网](http://9987.44ws.ga/tv/)
 
  [聚缘阁一站](https://j99.214g.gq/tz/)
 
