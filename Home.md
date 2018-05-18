@@ -6,7 +6,7 @@
 
  [聚缘阁一站](https://j99.214g.gq/jt/)
 
- [无界网](https://i-jyg.herokuapp.com/?id=2)
+ [无界网](https://jyg-proxy.herokuapp.com/?de)
 
  [动态网](https://j99.214g.gq/518/?hfe)
 
