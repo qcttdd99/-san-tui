@@ -4,7 +4,7 @@
 
  [聚缘阁视频网](https://dsec2.herokuapp.com/9.html)
 
- [聚缘阁一站](https://j99.214g.gq/jt/)
+ [聚缘阁一站](https://j99.214g.gq/ju/)
 
  [无界网](https://jyg-proxy.herokuapp.com/?de)
 
