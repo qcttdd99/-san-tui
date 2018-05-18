@@ -4,23 +4,23 @@
 
  [聚缘阁视频网](http://ewws.ucde.tk/tv/)
 
- [聚缘阁一站](https://j99.214g.gq/jt/)
+ [聚缘阁一站](https://5189.214g.gq/jt/)
 
  [无界网](https://i-jyg.herokuapp.com/?id=2)
 
- [动态网](https://j99.214g.gq/j9/?hfe)
+ [动态网](https://5189.214g.gq/518/?hfe)
 
-[退党网](https://j99.214g.gq/j9/?id=8)
+[退党网](https://5189.214g.gq/518/?id=8)
 
-[新唐人](https://j99.214g.gq/j9/?id=5)
+[新唐人](https://5189.214g.gq/518/?id=5)
 
-[明慧网](https://j99.214g.gq/j9/?id=8)
+[明慧网](https://5189.214g.gq/518/?id=8)
 
-[大纪元](https://j99.214g.gq/j9/?id=7)
+[大纪元](https://5189.214g.gq/518/?id=7)
 
 
-[看中国](https://j99.214g.gq/j9/?id=11)
+[看中国](https://5189.214g.gq/518/?id=11)
 
-[禁书网](https://j99.214g.gq/j9/?id=16)
+[禁书网](https://5189.214g.gq/518/?id=16)
 
  
