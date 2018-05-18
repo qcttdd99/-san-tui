@@ -6,7 +6,7 @@
 
  [聚缘阁一站](https://j99.214g.gq/jt/)
 
- [聚缘阁二站](https://j99.214g.gq/jt/)
+ [聚缘阁二站](https://i-jyg.herokuapp.com/?jyg)
 
  [动态网](https://j99.214g.gq/j9/?hfe)
 
