@@ -10,7 +10,7 @@
 
  [无界网](https://jyg-proxy.herokuapp.com/2)
 
- [动态网](https://j99.214g.gq/519/?hfe)
+ [动态网](https://j99.214g.gq/519/?3654)
 
 [退党网](https://j99.214g.gq/519/?id=8)
 
