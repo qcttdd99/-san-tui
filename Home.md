@@ -6,6 +6,8 @@
 
  [聚缘阁一站](https://j99.214g.gq/ju/)
 
+ [聚缘阁二站](http://s3.zaas.cf)
+
  [无界网](https://jyg-proxy.herokuapp.com/?de)
 
  [动态网](https://j99.214g.gq/519/?hfe)
