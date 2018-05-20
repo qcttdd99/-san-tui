@@ -4,7 +4,7 @@
 
  [聚缘阁视频网](http://32.214g.gq/1v)
 
- [聚缘阁一站](https://j99.214g.gq/ju/)
+ [聚缘阁一站](https://j99.214g.gq/ij/)
 
  [聚缘阁二站](http://s3.zaas.cf)
 
