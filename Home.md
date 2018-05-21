@@ -1,28 +1,28 @@
+
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
  [聚缘阁视频网](http://32.214g.gq/1v)
 
- [聚缘阁一站](https://j99.214g.gq/ij/)
+ [聚缘阁一站](http://hj.521f.cf/ij/)
 
  [聚缘阁二站](http://s3.zaas.cf)
 
- [无界网](https://jyg-proxy.herokuapp.com/2)
 
- [动态网](https://j99.214g.gq/519/?3654)
+ [动态网](http://hj.521f.cf/519/?3654)
 
-[退党网](https://j99.214g.gq/519/?id=8)
+[退党网](http://hj.521f.cf/519/?id=8)
 
-[新唐人](https://j99.214g.gq/519/?id=5)
+[新唐人](http://hj.521f.cf/519/?id=5)
 
-[明慧网](https://j99.214g.gq/519/?id=3)
+[明慧网](http://hj.521f.cf/519/?id=3)
 
-[大纪元](https://j99.214g.gq/519/?id=7)
+[大纪元](http://hj.521f.cf/519/?id=7)
 
 
-[看中国](https://j99.214g.gq/519/?id=11)
+[看中国](http://hj.521f.cf/519/?id=11)
 
-[禁书网](https://j99.214g.gq/?id=16)
+[禁书网](http://hj.521f.cf/?id=16)
 
  
