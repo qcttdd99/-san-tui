@@ -3,7 +3,7 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
- [聚缘阁视频网](https://jygbbs-1.herokuapp.com/)
+ [聚缘阁视频网](https://gt.t66t.ml/9.html)
 
  [聚缘阁一站](http://gt.t66t.ml/ij/)
 
