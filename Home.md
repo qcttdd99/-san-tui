@@ -5,7 +5,7 @@
 
  [聚缘阁视频网](https://gt.t66t.ml/9.html)
 
- [聚缘阁一站](https://gt.t66t.ml/jyg9/)
+ [聚缘阁一站](https://d35hgk3lo90unp.cloudfront.net/)
 
  [聚缘阁二站](http://s3.zaas.cf)
 
