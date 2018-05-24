@@ -5,7 +5,7 @@
 
  [聚缘阁视频网](https://gt.t66t.ml/9.html)
 
- [聚缘阁一站](https://gt.t66t.ml/jyg9/)
+ [聚缘阁一站](https://gt.t66t.ml/u7/)
 
 
 
