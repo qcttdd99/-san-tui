@@ -7,7 +7,7 @@
 
  [聚缘阁一站](https://gt.t66t.ml/jyg9/)
 
- [聚缘阁二站](http://s3.zaas.cf)
+
 
 
  [动态网](https://gt.t66t.ml/523/?3654)
