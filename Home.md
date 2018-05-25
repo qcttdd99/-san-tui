@@ -5,7 +5,7 @@
 
  [聚缘阁视频网](http://e3.s42f.ga/9.html)
 
- [聚缘阁一站](http://e3.s42f.ga/u7/)
+ [聚缘阁一站](http://j8.98uz.ga)
 
 
 
