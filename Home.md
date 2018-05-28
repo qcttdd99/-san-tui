@@ -7,7 +7,7 @@
 
  [聚缘阁一站](http://v2.521f.cf)
 
-[聚缘阁二站](http://jyg2.s42f.ga)
+[聚缘阁二站](http://gg2.b67g.ga)
 
 
  [动态网](http://s2.bygg.tk/524/?3654)
