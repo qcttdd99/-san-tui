@@ -3,14 +3,14 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
- [聚缘阁视频网](http://e3.521j.cf/9.html)
+ [聚缘阁视频网](http://s2.bygg.tk/9.html)
 
  [聚缘阁一站](http://v2.521f.cf)
 
 [聚缘阁二站](http://gg2.b67g.ga)
 
 
- [动态网](http://s2.bygg.tk/524/?3654)
+ [动态网](http://524/?3654)
 
 [退党网](http://s2.bygg.tk/524/?id=8)
 
