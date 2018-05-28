@@ -5,7 +5,7 @@
 
  [聚缘阁视频网](http://e3.521j.cf/9.html)
 
- [聚缘阁一站](http://j1.98uz.ga)
+ [聚缘阁一站](http://v2.521f.cf)
 
 [聚缘阁二站](http://jyg2.s42f.ga)
 
