@@ -10,19 +10,19 @@
 [聚缘阁二站](http://2z.s42f.ga)
 
 
- [动态网](https://a33.bygg.tk/523/?3654)
+ [动态网](https://a33.bygg.tk/524/?3654)
 
-[退党网](https://a33.bygg.tk/523/?id=8)
+[退党网](https://a33.bygg.tk/524/?id=8)
 
-[新唐人](https://a33.bygg.tk/523/?id=5)
+[新唐人](https://a33.bygg.tk/524/?id=5)
 
-[明慧网](https://a33.bygg.tk/523/?id=3)
+[明慧网](https://a33.bygg.tk/524/?id=3)
 
-[大纪元](https://a33.bygg.tk/523/?id=7)
+[大纪元](https://a33.bygg.tk/524/?id=7)
 
 
-[看中国](https://a33.bygg.tk/523/?id=11)
+[看中国](https://a33.bygg.tk/524/?id=11)
 
-[禁书网](https://a33.bygg.tk/523/?id=16)
+[禁书网](https://a33.bygg.tk/524/?id=16)
 
  
