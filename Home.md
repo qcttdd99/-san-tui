@@ -10,19 +10,19 @@
 [聚缘阁二站](http://jyg2.s42f.ga)
 
 
- [动态网](https://e3.521j.cf/524/?3654)
+ [动态网](http://s2.bygg.tk/524/?3654)
 
-[退党网](https://e3.521j.cf/524/?id=8)
+[退党网](http://s2.bygg.tk/524/?id=8)
 
-[新唐人](https://e3.521j.cf/524/?id=5)
+[新唐人](http://s2.bygg.tk/524/?id=5)
 
-[明慧网](https://e3.521j.cf/524/?id=3)
+[明慧网](http://s2.bygg.tk/524/?id=3)
 
-[大纪元](https://e3.521j.cf/524/?id=7)
+[大纪元](http://s2.bygg.tk/524/?id=7)
 
 
-[看中国](https://e3.521j.cf/524/?id=11)
+[看中国](http://s2.bygg.tk/524/?id=11)
 
-[禁书网](https://e3.521j.cf/524/?id=16)
+[禁书网](http://s2.bygg.tk/524/?id=16)
 
  
