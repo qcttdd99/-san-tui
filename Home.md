@@ -5,9 +5,9 @@
 
  [聚缘阁视频网](http://c2.521f.cf/9.html)
 
- [聚缘阁一站](http://v2.521f.cf)
+ [聚缘阁一站](http://a1.bygg.tk)
 
-[聚缘阁二站](http://gg2.b67g.ga)
+[聚缘阁二站](http://a2.bygg.tk)
 
 
  [动态网](http://c2.521f.cf/524/?3625554)
