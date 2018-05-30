@@ -5,20 +5,7 @@
 
  
 
- [动态网](http://231.dsa3.cf/)
-
-[退党网](http://231.dsa3.cf/?id=8)
-
-[大纪元](http://231.dsa3.cf/?id=7)
-
-[新唐人](http://231.dsa3.cf/?id=5)
-
-[明慧网](http://231.dsa3.cf/?id=3)
-
-[禁闻网](http://231.dsa3.cf/?id=16)
-
-[法轮大法](http://231.dsa3.cf/?id=15)
-
+ [翻墙入口](https://github.com/yuange99/4/wiki/6/)
 
 
 
