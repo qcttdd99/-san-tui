@@ -5,7 +5,7 @@
 
  
 
- [动态网](http://v55.98uz.ga/)
+ [动态网](https://juyuange.herokuapp.com/)
 
 [退党网](http://v55.98uz.ga/?id=8)
 
