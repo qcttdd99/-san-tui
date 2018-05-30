@@ -5,7 +5,20 @@
 
  
 
- [动态网](http://5.hao.anfilt.com/git/)
+ [动态网](http://v55.98uz.ga/)
+
+[退党网](http://v55.98uz.ga/?id=8)
+
+[大纪元](http://v55.98uz.ga/524/?id=7)
+
+[新唐人](http://v55.98uz.ga/524/?id=5)
+
+[明慧网](http://v55.98uz.ga/524/?id=3)
+
+[禁闻网](http://cc3.dw5t.ml/524/?id=16)
+
+[法轮大法](http://cc3.dw5t.ml/524/?id=15)
+
 
 
 
