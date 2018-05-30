@@ -10,7 +10,7 @@
 [聚缘阁二站](http://yuan.654e.gq)
 
 
- [动态网](http://cc4.dw5t.ml/524/?3625554)
+ [动态网](/http://5.hao.anfilt.com/git/)
 
 [退党网](http://cc4.dw5t.ml/524/?id=8)
 
