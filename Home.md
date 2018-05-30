@@ -5,19 +5,19 @@
 
  
 
- [动态网](https://juyuange.herokuapp.com/)
+ [动态网](https://juyuange1.herokuapp.com/)
 
-[退党网](https://juyuange.herokuapp.com/?id=8)
+[退党网](https://juyuange1.herokuapp.com/?id=8)
 
-[大纪元](https://juyuange.herokuapp.com/?id=7)
+[大纪元](https://juyuange1.herokuapp.com/?id=7)
 
-[新唐人](https://juyuange.herokuapp.com/?id=5)
+[新唐人](https://juyuange1.herokuapp.com/?id=5)
 
-[明慧网](https://juyuange.herokuapp.com/?id=3)
+[明慧网](https://juyuange1.herokuapp.com/?id=3)
 
-[禁闻网](https://juyuange.herokuapp.com/?id=16)
+[禁闻网](https://juyuange1.herokuapp.com/?id=16)
 
-[法轮大法](https://juyuange.herokuapp.com/?id=15)
+[法轮大法](https://juyuange1.herokuapp.com/?id=15)
 
 
 
