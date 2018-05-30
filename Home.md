@@ -5,7 +5,10 @@
 
  
 
- [翻墙入口](https://github.com/yuange99/4/wiki/6/)
+ [动态网](https://github.com/yuange99/4/wiki/6/)
+
+ [大纪元](https://github.com/yuange99/4/wiki/6/)
+
 
 
 
