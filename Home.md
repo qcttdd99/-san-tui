@@ -7,17 +7,17 @@
 
  [动态网](https://juyuange.herokuapp.com/)
 
-[退党网](http://v55.98uz.ga/?id=8)
+[退党网](https://juyuange.herokuapp.com/?id=8)
 
-[大纪元](http://v55.98uz.ga/524/?id=7)
+[大纪元](https://juyuange.herokuapp.com/?id=7)
 
-[新唐人](http://v55.98uz.ga/524/?id=5)
+[新唐人](https://juyuange.herokuapp.com/?id=5)
 
-[明慧网](http://v55.98uz.ga/524/?id=3)
+[明慧网](https://juyuange.herokuapp.com/?id=3)
 
-[禁闻网](http://cc3.dw5t.ml/524/?id=16)
+[禁闻网](https://juyuange.herokuapp.com/?id=16)
 
-[法轮大法](http://cc3.dw5t.ml/524/?id=15)
+[法轮大法](https://juyuange.herokuapp.com/?id=15)
 
 
 
