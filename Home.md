@@ -7,7 +7,7 @@
 
  [聚缘阁一站](http://ju13.521j.cf)
 
-[聚缘阁二站](https://jyg888.98uz.ga)
+[聚缘阁二站](http://yuan.654e.gq)
 
 
  [动态网](http://cc4.dw5t.ml/524/?3625554)
