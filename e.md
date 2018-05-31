@@ -5,7 +5,7 @@
  [聚缘阁视频网](http://tr45.2h4g.ml/9.html)
 
 
-[聚缘阁二站](http://ju3.daa2.ga)
+[聚缘阁二站](http://ju1.214n.tk)
 
 
  [动态网](http://tr45.2h4g.ml/?3625554)
