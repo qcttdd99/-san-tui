@@ -9,17 +9,17 @@
 
  [大纪元](https://github.com/yuange99/4/wiki/6/)
 
-[退党网](https://github.com/yuange99/4/wiki/6/)
+[退党网](http://2ww2.cdew3.ml/)
 
-[大纪元](https://github.com/yuange99/4/wiki/6/)
+[大纪元](http://2ww2.cdew3.ml/)
 
-[新唐人](https://github.com/yuange99/4/wiki/6/)
+[新唐人](http://2ww2.cdew3.ml/)
 
-[明慧网](https://github.com/yuange99/4/wiki/6/)
+[明慧网](http://2ww2.cdew3.ml/)
 
-[禁闻网](https://github.com/yuange99/4/wiki/6/)
+[禁闻网](http://56as.214g.gq)
 
-[法轮大法](https://github.com/yuange99/4/wiki/6/)
+[法轮大法](http://56as.214g.gq)
 
 
 
