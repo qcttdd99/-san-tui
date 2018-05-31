@@ -1,13 +1,6 @@
+![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
-![]
-
-(https://raw.githubusercontent.com/hao369/a/master/
-
-j.jpg)
-
- [聚缘阁代理安卓版]
-
-(https://github.com/hao369/a/raw/master/j8.apk)
+ [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
  [聚缘阁视频网](http://t55e.2ww4.tk/9.html)
 
