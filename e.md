@@ -2,22 +2,21 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
- 
 
 
-[聚缘阁二站](http://ju1.214n.tk)
+[聚缘阁二站](http://ju2.214n.tk)
 
 
- [动态网](http://tr45.2h4g.ml/?3625554)
+ [动态网](http://34re.55td.ga/)
 
-[退党网](http://tr45.2h4g.ml/?id=8)
+[退党网](http://34re.55td.ga/?id=8)
 
-[大纪元](http://tr45.2h4g.ml/?id=7)
+[大纪元](http://34re.55td.ga/?id=7)
 
-[新唐人](http://tr45.2h4g.ml/?id=5)
+[新唐人](http://34re.55td.ga/?id=5)
 
-[明慧网](http://tr45.2h4g.ml/?id=3)
+[明慧网](http://34re.55td.ga/?id=3)
 
-[禁闻网](http://tr45.2h4g.ml/?id=16)
+[禁闻网](http://34re.55td.ga/?id=16)
 
-[法轮大法](http://tr45.2h4g.ml/?id=15)
+[法轮大法](http://34re.55td.ga/?id=15)
