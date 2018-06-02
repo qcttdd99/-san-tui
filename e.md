@@ -1,7 +1,8 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
- [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
+**【公告】翻墙网址为动态SSL，点击打不开，等两分钟再来访问。。。。**
 
+ [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
 
 [聚缘阁二站](http://ju2.214n.tk)
