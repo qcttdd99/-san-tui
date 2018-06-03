@@ -6,7 +6,7 @@
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
 
-[聚缘阁二站](http://sw2.jyge.cf)
+[聚缘阁二站](http://qw12.dwvj5.cf/j2)
 
 
  [动态网](http://qw12.dwvj5.cf/)
