@@ -5,7 +5,7 @@
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
 
-[聚缘阁二站](http://j77b.bdf5t.cf)
+[聚缘阁二站](http://sw2.jyge.cf)
 
 
  [动态网](http://td98.6433.cf/)
