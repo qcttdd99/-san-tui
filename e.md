@@ -8,16 +8,16 @@
 [聚缘阁二站](http://ju2.214n.tk)
 
 
- [动态网](http://tu88.2h4g.ml/)
+ [动态网](http://td98.6433.cfl/)
 
-[退党网](http://tu88.2h4g.ml/?id=8)
+[退党网](http://td98.6433.cfl/?id=8)
 
-[大纪元](http://tu88.2h4g.ml/?id=7)
+[大纪元](http://td98.6433.cfl/?id=7)
 
-[新唐人](http://tu88.2h4g.ml/?id=5)
+[新唐人](http://td98.6433.cfl/?id=5)
 
-[明慧网](http://tu88.2h4g.ml/?id=3)
+[明慧网](http://td98.6433.cfl/?id=3)
 
-[禁闻网](http://tu88.2h4g.ml/?id=16)
+[禁闻网](http://td98.6433.cfl/?id=16)
 
-[法轮大法](http://tu88.2h4g.ml/?id=15)
+[法轮大法](http://td98.6433.cfl/?id=15)
