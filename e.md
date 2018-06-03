@@ -8,16 +8,16 @@
 [聚缘阁二站](http://sw2.jyge.cf)
 
 
- [动态网](http://td98.6433.cf/)
+ [动态网](http://ww2.sw13f.tk/)
 
-[退党网](http://td98.6433.cf/?id=8)
+[退党网](http://ww2.sw13f.tk/?id=8)
 
-[大纪元](http://td98.6433.cf/?id=7)
+[大纪元](http://ww2.sw13f.tk/?id=7)
 
-[新唐人](http://td98.6433.cf/?id=5)
+[新唐人](http://ww2.sw13f.tk/?id=5)
 
-[明慧网](http://td98.6433.cf/?id=3)
+[明慧网](http://ww2.sw13f.tk/?id=3)
 
-[禁闻网](http://td98.6433.cf/?id=16)
+[禁闻网](http://ww2.sw13f.tk/?id=16)
 
-[法轮大法](http://td98.6433.cf/?id=15)
+[法轮大法](http://ww2.sw13f.tk/?id=15)
