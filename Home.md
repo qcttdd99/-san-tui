@@ -3,7 +3,7 @@
 
 
 
-###  [聚缘阁代理新入口](https://github.com/yuange99/4/wiki/5)
+###  [聚缘阁代理新入口](https://github.com/yuange99/4/wiki/7)
 
 
 
