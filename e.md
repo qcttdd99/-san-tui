@@ -1,23 +1,27 @@
+
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
-**【公告】翻墙网址为动态SSL，点击打不开，等两分钟再来访问。。。。**
+
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
+ [聚缘阁视频网](http://hao123.98uz.ga/9.html)
 
-[聚缘阁二站](http://sw2.jyge.cf)
+[聚缘阁二站](http://hao123.98uz.ga/j2)
 
 
- [动态网](http://ww2.sw13f.tk/)
+ [动态网](http://hao123.98uz.ga/)
 
-[退党网](http://ww2.sw13f.tk/?id=8)
+[退党网](http://hao123.98uz.ga/?id=8)
 
-[大纪元](http://ww2.sw13f.tk/?id=7)
+[大纪元](http://hao123.98uz.ga/?id=7)
 
-[新唐人](http://ww2.sw13f.tk/?id=5)
+[新唐人](http://hao123.98uz.ga/?id=5)
 
-[明慧网](http://ww2.sw13f.tk/?id=3)
+[明慧网](http://hao123.98uz.ga/?id=3)
 
-[禁闻网](http://ww2.sw13f.tk/?id=16)
+[禁闻网](http://hao123.98uz.ga/?id=16)
 
-[法轮大法](http://ww2.sw13f.tk/?id=15)
+[法轮大法](http://hao123.98uz.ga/?id=15)
+
+
