@@ -3,25 +3,7 @@
 
 
 
- [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
+#  [聚缘阁代理新入口](https://github.com/yuange99/4/wiki/65)
 
- [聚缘阁视频网](http://wq1.98uz.ga/9.html)
-
-[聚缘阁二站](http://wq1.98uz.ga/j2)
-
-
- [动态网](http://wq1.98uz.ga/)
-
-[退党网](http://wq1.98uz.ga/?id=8)
-
-[大纪元](http://wq1.98uz.ga/?id=7)
-
-[新唐人](http://wq1.98uz.ga/?id=5)
-
-[明慧网](http://wq1.98uz.ga/?id=3)
-
-[禁闻网](http://wq1.98uz.ga/?id=16)
-
-[法轮大法](http://wq1.98uz.ga/?id=15)
 
 
