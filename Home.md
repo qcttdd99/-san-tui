@@ -5,23 +5,23 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
- [聚缘阁视频网](https://d23z9s77dnhiem.cloudfront.net/9.html)
+ [聚缘阁视频网](http://wq1.98uz.ga/9.html)
 
-[聚缘阁二站](https://d23z9s77dnhiem.cloudfront.net/j2)
+[聚缘阁二站](http://wq1.98uz.ga/j2)
 
 
- [动态网](https://d23z9s77dnhiem.cloudfront.net/)
+ [动态网](http://wq1.98uz.ga/)
 
-[退党网](https://d23z9s77dnhiem.cloudfront.net/?id=8)
+[退党网](http://wq1.98uz.ga/?id=8)
 
-[大纪元](https://d23z9s77dnhiem.cloudfront.net/?id=7)
+[大纪元](http://wq1.98uz.ga/?id=7)
 
-[新唐人](https://d23z9s77dnhiem.cloudfront.net/?id=5)
+[新唐人](http://wq1.98uz.ga/?id=5)
 
-[明慧网](https://d23z9s77dnhiem.cloudfront.net/?id=3)
+[明慧网](http://wq1.98uz.ga/?id=3)
 
-[禁闻网](https://d23z9s77dnhiem.cloudfront.net/?id=16)
+[禁闻网](http://wq1.98uz.ga/?id=16)
 
-[法轮大法](https://d23z9s77dnhiem.cloudfront.net/?id=15)
+[法轮大法](http://wq1.98uz.ga/?id=15)
 
 
