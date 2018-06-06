@@ -5,23 +5,23 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
- [聚缘阁视频网](http://as12.511as4.ml/9.html)
+ [聚缘阁视频网](http://dea1.b98g.ga/9.html)
 
-[聚缘阁二站](http://as12.511as4.ml/j2)
+[聚缘阁二站](http://dea1.b98g.ga/j2)
 
 
- [动态网](http://as12.511as4.ml/)
+ [动态网](http://dea1.b98g.ga/)
 
-[退党网](http://as12.511as4.ml/?id=8)
+[退党网](http://dea1.b98g.ga/?id=8)
 
-[大纪元](http://as12.511as4.ml/?id=7)
+[大纪元](http://dea1.b98g.ga/?id=7)
 
-[新唐人](http://as12.511as4.ml/?id=5)
+[新唐人](http://dea1.b98g.ga/?id=5)
 
-[明慧网](http://as12.511as4.ml/?id=3)
+[明慧网](http://dea1.b98g.ga/?id=3)
 
-[禁闻网](http://as12.511as4.ml/?id=16)
+[禁闻网](http://dea1.b98g.ga/?id=16)
 
-[法轮大法](http://as12.511as4.ml/?id=15)
+[法轮大法](http://dea1.b98g.ga/?id=15)
 
 
