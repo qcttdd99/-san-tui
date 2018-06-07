@@ -6,6 +6,6 @@
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
 
-#  [代理新入口](https://x.co/jygtz/)
+#  [代理新入口](https://x.co/1688/)
 
 
