@@ -7,21 +7,21 @@
 
 
 
-[聚缘阁二站](http://haw2.jt3.theiotlabs.com/j2)
+[聚缘阁二站](https://x.co/jygtz/)
 
 
- [动态网](http://haw2.jt3.theiotlabs.com/)
+ [动态网](https://x.co/jygtz/)
 
-[退党网](http://haw2.jt3.theiotlabs.com/?id=8)
+[退党网](https://x.co/jygtz/)
 
-[大纪元](http://haw2.jt3.theiotlabs.com/?id=7)
+[大纪元](https://x.co/jygtz/)
 
-[新唐人](http://haw2.jt3.theiotlabs.com/?id=5)
+[新唐人](https://x.co/jygtz/)
 
-[明慧网](http://haw2.jt3.theiotlabs.com/?id=3)
+[明慧网](https://x.co/jygtz/)
 
-[禁闻网](http://haw2.jt3.theiotlabs.com/?id=16)
+[禁闻网](https://x.co/jygtz/)
 
-[法轮大法](http://haw2.jt3.theiotlabs.com/?id=15)
+[法轮大法](https://x.co/jygtz/)
 
 
