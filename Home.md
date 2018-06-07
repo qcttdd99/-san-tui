@@ -5,10 +5,11 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
- [聚缘阁视频网](http://haw1.b67g.ga/9.html)
+
 
 [聚缘阁二站](http://haw1.b67g.ga/j2)
 
+ [动态网](https://x.co/jygtz/)
 
  [动态网](http://haw1.b67g.ga/)
 
