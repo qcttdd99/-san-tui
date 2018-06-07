@@ -1,27 +1,27 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
-
+**【公告】代理大升级，全程SSL加密传送，支持youtube视频播放，新唐人视频播放。。。**
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
- [聚缘阁视频网](http://hao123.98uz.ga/9.html)
-
-[聚缘阁二站](http://hao123.98uz.ga/j2)
 
 
- [动态网](http://hao123.98uz.ga/)
+[聚缘阁二站](http://haw2.jt3.theiotlabs.com/j2)
 
-[退党网](http://hao123.98uz.ga/?id=8)
 
-[大纪元](http://hao123.98uz.ga/?id=7)
+ [动态网](http://haw2.jt3.theiotlabs.com/)
 
-[新唐人](http://hao123.98uz.ga/?id=5)
+[退党网](http://haw2.jt3.theiotlabs.com/?id=8)
 
-[明慧网](http://hao123.98uz.ga/?id=3)
+[大纪元](http://haw2.jt3.theiotlabs.com/?id=7)
 
-[禁闻网](http://hao123.98uz.ga/?id=16)
+[新唐人](http://haw2.jt3.theiotlabs.com/?id=5)
 
-[法轮大法](http://hao123.98uz.ga/?id=15)
+[明慧网](http://haw2.jt3.theiotlabs.com/?id=3)
+
+[禁闻网](http://haw2.jt3.theiotlabs.com/?id=16)
+
+[法轮大法](http://haw2.jt3.theiotlabs.com/?id=15)
 
 
