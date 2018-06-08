@@ -6,4 +6,4 @@
 
 
 
-#  [代理新入口](https://github.com/ju99/e/wiki/ws)
+#  [代理新入口](https://github.com/ju99/e/wiki/68)
