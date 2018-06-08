@@ -7,21 +7,10 @@
 
 
 
-[聚缘阁二站](http://zx11.521f.cf/j2)
+[聚缘阁代理一](https://github.com/yuange99/4/wiki/szzd)
 
 
- [动态网](http://zx11.521f.cf/)
+[聚缘阁代理二](https://github.com/yuange99/4/wiki/szzd)
 
-[退党网](http://zx11.521f.cf/?id=8)
-
-[大纪元](http://zx11.521f.cf/?id=7)
-
-[新唐人](http://zx11.521f.cf/?id=5)
-
-[明慧网](http://zx11.521f.cf/?id=3)
-
-[禁闻网](http://zx11.521f.cf/?id=16)
-
-[法轮大法](http://zx11.521f.cf/?id=15)
 
 
