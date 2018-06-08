@@ -6,4 +6,4 @@
 
 
 
-#  [代理新入口](https://github.com/ju99/e/wiki/68)
+#  [代理新入口](https://github.com/yuange99/4/wiki/68-1)
