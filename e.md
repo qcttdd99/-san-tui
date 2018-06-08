@@ -7,21 +7,21 @@
 
 
 
-[聚缘阁二站](https://x.co/jygtz/)
+[聚缘阁二站](http://zx11.521f.cf/j2)
 
 
- [动态网](https://x.co/jygtz/)
+ [动态网](http://zx11.521f.cf/)
 
-[退党网](https://x.co/jygtz/)
+[退党网](http://zx11.521f.cf/?id=8)
 
-[大纪元](https://x.co/jygtz/)
+[大纪元](http://zx11.521f.cf/?id=7)
 
-[新唐人](https://x.co/jygtz/)
+[新唐人](http://zx11.521f.cf/?id=5)
 
-[明慧网](https://x.co/jygtz/)
+[明慧网](http://zx11.521f.cf/?id=3)
 
-[禁闻网](https://x.co/jygtz/)
+[禁闻网](http://zx11.521f.cf/?id=16)
 
-[法轮大法](https://x.co/jygtz/)
+[法轮大法](http://zx11.521f.cf/?id=15)
 
 
