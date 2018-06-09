@@ -5,7 +5,9 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
-[聚缘阁视频](http://asd1.t66t.ml/tv)
+[聚缘阁视频动态入口](http://asd1.t66t.ml/tv)
+
+[聚缘阁视频git镜像](https://juyuange9.github.io/tvttr/)
 
 [聚缘阁二站](http://asd1.t66t.ml/j2)
 
