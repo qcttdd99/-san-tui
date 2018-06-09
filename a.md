@@ -7,21 +7,21 @@
 
 
 
-[聚缘阁二站](http://qw111.98uz.ga/j2)
+[聚缘阁二站](http://er31.b98g.ga/j2)
 
 
- [动态网](http://qw111.98uz.ga/)
+ [动态网](http://er31.b98g.ga/)
 
-[退党网](http://qw111.98uz.ga/?id=8)
+[退党网](http://er31.b98g.ga/?id=8)
 
-[大纪元](http://qw111.98uz.ga/?id=7)
+[大纪元](http://er31.b98g.ga/?id=7)
 
-[新唐人](http://qw111.98uz.ga/?id=5)
+[新唐人](http://er31.b98g.ga/?id=5)
 
-[明慧网](http://qw111.98uz.ga/?id=3)
+[明慧网](http://er31.b98g.ga/?id=3)
 
-[禁闻网](http://qw111.98uz.ga/?id=16)
+[禁闻网](http://er31.b98g.ga/?id=16)
 
-[法轮大法](http://qw111.98uz.ga/?id=15)
+[法轮大法](http://er31.b98g.ga/?id=15)
 
 
