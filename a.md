@@ -11,6 +11,7 @@
 
 [聚缘阁二站](http://asd1.t66t.ml/j2)
 
+[新唐人在线播放，有代码提供](https://juyuange9.github.io/tvttr/xtr.html)
 
  [动态网](http://asd1.t66t.ml/)
 
