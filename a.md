@@ -5,7 +5,7 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
-
+[聚缘阁视频](http://er31.b98g.ga/tv)
 
 [聚缘阁二站](http://er31.b98g.ga/j2)
 
