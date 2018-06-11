@@ -6,4 +6,4 @@
 
 
 
-#  [代理新入口](https://github.com/yuange99/4/wiki/a3ve3)
+#  [代理新入口]( https://jtup.github.io/98)
