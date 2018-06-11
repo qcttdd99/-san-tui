@@ -10,7 +10,7 @@
 
 #  [聚缘阁视频网](https://juyuange9.github.io/tvttr/)
 
-#  [新唐人在线播放(https://juyuange9.github.io/tvttr/xtr.html)
+#  [新唐人在线播放](https://juyuange9.github.io/tvttr/xtr.html)
 
 
 
