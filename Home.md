@@ -6,4 +6,11 @@
 
 
 
-#  [代理新入口]( https://ju99.github.io/jyg/)
+#  [聚缘阁代理]( https://ju99.github.io/jyg/)
+
+#  [聚缘阁视频网](https://juyuange9.github.io/tvttr/)
+
+#  [新唐人在线播放(https://juyuange9.github.io/tvttr/xtr.html)
+
+
+
