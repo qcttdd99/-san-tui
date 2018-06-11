@@ -6,4 +6,4 @@
 
 
 
-#  [代理新入口]( https://jtup.github.io/98)
+#  [代理新入口]( https://ju99.github.io/jyg/)
