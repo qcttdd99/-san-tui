@@ -5,28 +5,25 @@
 
  [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
 
-[聚缘阁视频动态入口](http://asd1.t66t.ml/tv)
+[聚缘阁视频](http://vc21.98uz.ga/tv)
 
-[聚缘阁视频git镜像](https://juyuange9.github.io/tvttr/)
 
-[聚缘阁二站](http://asd1.t66t.ml/j2)
+[聚缘阁二站](http://vc21.98uz.ga/j2)
 
-[新唐人在线播放](https://juyuange9.github.io/tvttr/xtr.html)
+ [动态网](http://vc21.98uz.ga/)
 
- [动态网](http://asd1.t66t.ml/)
+[退党网](http://vc21.98uz.ga/?id=8)
 
-[退党网](http://asd1.t66t.ml/?id=8)
+[大纪元](http://vc21.98uz.ga/?id=7)
 
-[大纪元](http://asd1.t66t.ml/?id=7)
+[新唐人](http://vc21.98uz.ga/?id=5)
 
-[新唐人](http://asd1.t66t.ml/?id=5)
+[明慧网](http://vc21.98uz.ga/?id=3)
 
-[明慧网](http://asd1.t66t.ml/?id=3)
+[禁闻网](http://vc21.98uz.ga/?id=16)
 
-[禁闻网](http://asd1.t66t.ml/?id=16)
+[法轮大法](http://vc21.98uz.ga/?id=15)
 
-[法轮大法](http://asd1.t66t.ml/?id=15)
-
-[youtube视频](http://asd1.t66t.ml/?id=17)
+[youtube视频](http://vc21.98uz.ga/?id=17)
 
 
