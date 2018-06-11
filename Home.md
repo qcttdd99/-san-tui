@@ -6,4 +6,4 @@
 
 
 
-#  [代理新入口](https://github.com/yuange99/4/wiki/a)
+#  [代理新入口](https://github.com/yuange99/4/wiki/a2)
