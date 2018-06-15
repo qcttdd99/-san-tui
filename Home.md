@@ -3,7 +3,7 @@
 **【公告】代理大升级，全程SSL加密传送，支持youtube视频、新唐人视频、大纪元视频播放。。。**
 
 
-##  [聚缘阁代理一]( https://ju99.github.io/jyg/)
+##  [聚缘阁代理一]( https://jyg2.github.io/jyg/)
 
 ##  [聚缘阁代理二]( https://hao369.github.io/jyg/)
 
