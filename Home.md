@@ -13,9 +13,7 @@
 
 
 
-##  [聚缘阁视频网](https://xtr-tv.github.io/tv/)
-
-##  [新唐人在线播放](https://xtr-tv.github.io/tv/xtr.html)
+##  [新唐人在线播放](https://xtr-tv1.github.io/tv/xtr.html)
 
 ##  [聚缘阁代理安卓201861502版本](https://github.com/dtw9/9/raw/master/201861502.apk)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
 
