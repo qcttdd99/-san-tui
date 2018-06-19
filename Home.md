@@ -9,7 +9,7 @@
 
 ##  [聚缘阁代理二]( https://dtw9.github.io/jyg/)
 
-##  [聚缘阁代理三]( https://jyg-1.github.io/jyg/)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
+##  [聚缘阁代理三]( https://haojyg1.github.io/a/)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
 
 
 
