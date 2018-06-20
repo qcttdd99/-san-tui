@@ -9,7 +9,7 @@
 
 ##  [聚缘阁代理二](https://hao223.github.io/a/index.html)
 
-##  [聚缘阁代理三]( https://hao223.github.io/a/index.html)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
+##  [新唐人在线播放](https://xtr-1.github.io/jyg/xtr.html)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
 
 
 
