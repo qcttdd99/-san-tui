@@ -5,9 +5,9 @@
 聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。[点击下载](https://github.com/dtw9/9/raw/master/201861502.apk)
 
 
-##  [聚缘阁代理一](https://byy6.github.io/jyg/index.html)
+##  [聚缘阁代理一](https://c123a.github.io/hao/)
 
-##  [聚缘阁代理二](https://byy6.github.io/jyg/index.html)
+##  [聚缘阁代理二](https://c123a.github.io/hao/)
 
 
 
