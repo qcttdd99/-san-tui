@@ -9,6 +9,8 @@
 
 ##  [聚缘阁代理四](http://54gft.acc.white.ru/)
 
+##  [新唐人在线播放](http://xtr-t.acc.white.ru/xtr.html)
+
 
 
 
