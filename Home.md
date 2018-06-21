@@ -7,9 +7,9 @@
 
 ##  [聚缘阁代理三](http://54vfr.ju88.heart2h.com/)
 
-##  [聚缘阁代理四](http://54gft.acc.white.ru/)
+##  [聚缘阁代理四](http://54guft.acc.white.ru/)
 
-##  [新唐人在线播放](http://xtr-t.acc.white.ru/xtr.html)
+##  [新唐人在线播放](http://xtr1-t.acc.white.ru/xtr.html)
 
 
 
