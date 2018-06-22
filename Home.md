@@ -7,7 +7,7 @@
 
 ##  [聚缘阁代理三](http://3254.vsa.corriee.org/)
 
-##  [聚缘阁代理四](http://3254d.vsa.corriee.org//)
+##  [聚缘阁代理四](http://3254d.swq.cesedria.com/)
 
 ##  [新唐人在线播放](http://3254w.vsa.corriee.org/xtr.html)
 
