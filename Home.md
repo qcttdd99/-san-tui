@@ -5,11 +5,11 @@
 聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。[点击下载](https://github.com/dtw9/9/raw/master/201861502.apk)
 
 
-##  [聚缘阁代理三](http://45mi.ju88.heart2h.com/)
+##  [聚缘阁代理三](http://4m8ti.ju88.heart2h.com/)
 
-##  [聚缘阁代理四](http://2m8u.acc.white.ru/)
+##  [聚缘阁代理四](http://by6u.acc.white.ru/)
 
-##  [新唐人在线播放](http://tv-9n.acc.white.ru/xtr.html)
+##  [新唐人在线播放](http://tv2-9n.acc.white.ru/xtr.html)
 
 
 
