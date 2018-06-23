@@ -8,9 +8,9 @@
 
 ##  [聚缘阁代理二](http://95fqh2.acb.white.ru/)
 
-##  [聚缘阁代理三](http://rvafq9a.5swq.cesedria.com/)
+##  [聚缘阁代理三](http://rva6fq9a.swq.cesedria.com/)
 
-##  [新唐人在线播放](http:/2q3-5.v3sa.corriee.org/xtr.html)
+##  [新唐人在线播放](http:/25q3-5.vsa.corriee.org/xtr.html)
 
 
 
