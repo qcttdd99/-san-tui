@@ -10,7 +10,7 @@
 
 ##  [聚缘阁代理三](http://53ywa.tre.iloile.com/)
 
-##  [新唐人在线播放](http:/5y575.tre.iloile.com/xtr.html)
+##  [新唐人在线播放](http:/5y575.tre.iloile.com/xtr9.html)
 
 
 
