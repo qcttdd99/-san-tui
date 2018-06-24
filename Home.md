@@ -6,11 +6,11 @@
 
 ##  [聚缘阁代理一](http://4y8fyu7f.ju89.heart2h.com/)
 
-##  [聚缘阁代理二](http://y53fy7542.acb.white.ru/)
+##  [聚缘阁代理二](http://53774ya.gae.geass.tv/)
 
-##  [聚缘阁代理三](http://53774fya.swq.cesedria.com/)
+##  [聚缘阁代理三](http://53774fya.tre.iloile.com/)
 
-##  [新唐人在线播放](http:/5476ff675.swq.cesedria.com/xtr.html)
+##  [新唐人在线播放](http:/5476ff675.tre.iloile.com/xtr.html)
 
 
 
