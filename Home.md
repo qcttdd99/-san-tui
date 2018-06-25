@@ -8,7 +8,7 @@
 
 ##  [聚缘阁代理二](http://5a-3a.gae.geass.tv/)
 
-##  [聚缘阁代理三](http://5a-3t.tre.iloile.com/)
+##  [聚缘阁代理三](http://5a-3t.iew.supersociallife.com)
 
 ##  [聚缘阁代理四](http://54-ca.vsam.corriee.org/)
 
