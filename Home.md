@@ -14,7 +14,7 @@
 
 ##  [聚缘阁代理五](http://5yc-txgt.swqm.cesedria.com/)
 
-##  [新唐人在线播放](http://fec-3g5.tre.iloile.com/xtr.html)
+##  [新唐人在线播放](http://fec-3e35.tre.iloile.com/xtr.html)
 
 
 
