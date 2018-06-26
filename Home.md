@@ -8,7 +8,7 @@
 
 ##  [聚缘阁代理二](http://5y7ry9ra.acb.white.ru/)
 
-##  [聚缘阁代理三](http://5ycrt.iew.supersociallife.com/)
+##  [聚缘阁代理三](http://5ycrt.ju89.heart2h.com/)
 
 ##  [聚缘阁代理四](http://57x64ga.vsam.corriee.org/)
 
