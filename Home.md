@@ -10,7 +10,7 @@
 
 ##  [聚缘阁代理三](http://5rt.eggs.eggsample.com.au/)
 
-##  [聚缘阁代理四](http://57x64ga.626a.prilohy.sk/)
+##  [新唐人在线直播](http://57x64ga.5rt.eggs.eggsample.com.au/xtr.html)
 
 
 
