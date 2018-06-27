@@ -4,15 +4,15 @@
 
 聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。[点击下载](https://github.com/dtw9/9/raw/master/201861502.apk)
 
-##  [聚缘阁代理一](http://ry53254.haor.poetry.is)
+##  [聚缘阁代理一](http://ree254e.haor.poetry.is)
 
-##  [聚缘阁代理二](http://4er-5662.627.aser.com.ve/)
+##  [聚缘阁代理二](http://4eeer.627.aser.com.ve/)
 
 ##  [聚缘阁代理三](http://123q.cer4.ga) 
 
 
 
-##  [新唐人在线直播](http://5po9r.haor.poetry.is/xtr.html)
+##  [新唐人在线直播](http://5pore.haor.poetry.is/xtr.html)
 
 
 
