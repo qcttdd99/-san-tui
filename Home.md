@@ -6,7 +6,7 @@
 
 ##  [聚缘阁代理一](http://2re9y4.eggs.eggsample.com.au/)
 
-##  [聚缘阁代理二](http://rr6ra.eggs.eggsample.com.au/)
+##  [聚缘阁代理二](http://rr6ra.asfw.bbhlover.com/)
 
 ##  [聚缘阁代理三](http://5rt.eggs.eggsample.com.au/)
 
