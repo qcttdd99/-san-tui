@@ -12,7 +12,7 @@
 
 
 
-##  [新唐人在线直播](http://dere.haor.poetry.is/xtr.html)
+##  [新唐人在线直播](http://t.cn/RrC5meO)
 
 
 
