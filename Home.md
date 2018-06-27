@@ -8,7 +8,7 @@
 
 ##  [聚缘阁代理二](http://4ddgrr.627.aser.com.ve/)
 
-##  [聚缘阁代理三](http://123q.cer4.ga) 
+##  [聚缘阁代理三](http://t.cn/Rr9rGDM) 
 
 
 
