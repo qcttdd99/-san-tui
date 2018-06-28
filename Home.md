@@ -12,9 +12,7 @@
 ## [聚缘阁代理安卓201861502版本](https://github.com/dtw9/9/raw/master/201861502.apk)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
 
 
-## 亚马逊镜像
-
-**注：亚马逊网址在中国大陆有时候可以访问，有时候不能够访问，请耐心点击测试。**
+## 亚马逊镜像  _时而可访问，全凭好运气！_
 
 ## [镜像一](https://s3.amazonaws.com/dtw/index.html)
 
