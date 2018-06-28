@@ -7,20 +7,20 @@
  
 ##  [新唐人在线播放](http://t.cn/RrOQzae)
 
-### [聚缘阁代理动态入口](http://t.cn/RrOObI5)
+## [聚缘阁代理动态入口](http://t.cn/RrOObI5)
 
-### [聚缘阁代理安卓201861502版本](https://github.com/dtw9/9/raw/master/201861502.apk)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
+## [聚缘阁代理安卓201861502版本](https://github.com/dtw9/9/raw/master/201861502.apk)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
 
 
 ## 亚马逊镜像
 
 **注：亚马逊网址在中国大陆有时候可以访问，有时候不能够访问，请耐心点击测试。**
 
-##[镜像一](https://s3.amazonaws.com/dtw/index.html)
+## [镜像一](https://s3.amazonaws.com/dtw/index.html)
 
-##[镜像二](https://s3.ap-northeast-2.amazonaws.com/haojyg/index.html)
+## [镜像二](https://s3.ap-northeast-2.amazonaws.com/haojyg/index.html)
 
-##[镜像三](https://s3-ap-southeast-1.amazonaws.com/jyg4/index.html)
+## [镜像三](https://s3-ap-southeast-1.amazonaws.com/jyg4/index.html)
 
 
 
