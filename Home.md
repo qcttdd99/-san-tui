@@ -6,11 +6,6 @@
 
 ##  [聚缘阁代理一](http://t.cn/Rr9rGDM)
 
-##  [聚缘阁代理二](http://t.cn/Rr9rGDM)
-
-##  [聚缘阁代理三](http://t.cn/Rr9rGDM) 
-
-
 
 ##  [新唐人在线直播](http://t.cn/RrC5meO)
 
