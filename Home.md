@@ -11,6 +11,10 @@
 
 ##  [聚缘阁代理三](https://s3.ap-northeast-2.amazonaws.com/haojyg/index.html)
 
+##  [聚缘阁代理四](https://s3-ap-southeast-1.amazonaws.com/jyg4/index.html)
+
+
+
 
 ##  [新唐人在线播放](http://t.cn/RrOQzae)
 
