@@ -7,7 +7,7 @@
 ##  [聚缘阁代理一](https://s3.amazonaws.com/dtw/index.html)
 
 
-##  [聚缘阁代理二](http://21fdd4.cdd3.promotionalbabyproducts.com/)
+##  [聚缘阁代理二](http://t.cn/RrOObI5)
 
 
 
