@@ -14,7 +14,7 @@
 
 ## 亚马逊镜像  
 
-_时而可访问，全凭好运气！_
+时而可访问，全凭好运气！
 
 ## [镜像一](https://s3.amazonaws.com/dtw/index.html)
 
