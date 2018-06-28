@@ -9,6 +9,9 @@
 
 ##  [聚缘阁代理二](http://t.cn/RrOObI5)
 
+##  [聚缘阁代理三](https://s3.ap-northeast-2.amazonaws.com/haojyg/index.html)
+
+
 ##  [新唐人在线播放](http://t.cn/RrOQzae)
 
 
