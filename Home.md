@@ -16,11 +16,11 @@
 
 **注：亚马逊网址在中国大陆有时候可以访问，有时候不能够访问，请耐心点击测试。**
 
-**[聚缘阁代理一](https://s3.amazonaws.com/dtw/index.html)**
+**[聚缘阁代理S3-1](https://s3.amazonaws.com/dtw/index.html)**
 
-**[聚缘阁代理三](https://s3.ap-northeast-2.amazonaws.com/haojyg/index.html)**
+**[聚缘阁代理S3-2](https://s3.ap-northeast-2.amazonaws.com/haojyg/index.html)**
 
-**[聚缘阁代理四](https://s3-ap-southeast-1.amazonaws.com/jyg4/index.html)**
+**[聚缘阁代理S3-3](https://s3-ap-southeast-1.amazonaws.com/jyg4/index.html)**
 
 
 
