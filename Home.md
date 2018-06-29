@@ -4,12 +4,7 @@
 
 聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。[点击下载](https://github.com/dtw9/9/raw/master/201861502.apk)
 
- 
-##  [新唐人在线播放](http://t.cn/RrOQzae)
 
-## [聚缘阁代理动态入口](http://t.cn/RrOObI5)
-
-## [聚缘阁代理安卓201861502版本](https://github.com/dtw9/9/raw/master/201861502.apk)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
 
 
 ## 亚马逊镜像  
