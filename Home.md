@@ -4,7 +4,10 @@
 
 聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。[点击下载](https://github.com/dtw9/9/raw/master/201861502.apk)
 
-##  [新唐人网络直播](http://u6.gg/dFJwT)
+##  [新唐人网络直播电脑版](http://u6.gg/dFJwT)
+
+##  [新唐人网络直播手机版](http://u6.gg/dFJC2)
+
 
 ##  [聚缘阁代理一](http://u6.gg/dFE2p)
 
