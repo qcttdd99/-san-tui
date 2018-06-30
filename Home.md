@@ -6,6 +6,8 @@
 
 **本站推出新唐人网络高速直播手机版，在手机上就可以轻轻松松看新唐人电视了，快快来体验吧！**
 
+**新唐人直播只是晚上对外开放，晚上可以在手机上观看，很方便的。**
+
 ##  [新唐人网络直播手机版](http://u6.gg/dFJC2)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
 
 ##  [新唐人网络直播电脑版](http://u6.gg/dFJwT)
