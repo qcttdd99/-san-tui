@@ -4,12 +4,13 @@
 
 聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。[点击下载](https://github.com/dtw9/9/raw/master/201861502.apk)
 
+**本站推出新唐人网络高速直播手机版，在手机上就可以轻轻松松看新唐人电视了，快快来体验吧！**
 
-##  [聚缘阁代理一](http://u6.gg/dFE2p)
+##  [新唐人网络直播手机版](http://u6.gg/dFJC2)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
 
 ##  [新唐人网络直播电脑版](http://u6.gg/dFJwT)
 
-##  [新唐人网络直播手机版](http://u6.gg/dFJC2)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
+##  [聚缘阁代理一](http://u6.gg/dFE2p)
 
 ## 亚马逊镜像  
 
