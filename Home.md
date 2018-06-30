@@ -9,7 +9,7 @@
 
 ##  [新唐人网络直播电脑版](http://u6.gg/dFJwT)
 
-##  [新唐人网络直播手机版](http://u6.gg/dFJC2)
+##  [新唐人网络直播手机版](http://u6.gg/dFJC2)![](https://raw.githubusercontent.com/jyg-1/jyg/master/new.gif)
 
 ## 亚马逊镜像  
 
