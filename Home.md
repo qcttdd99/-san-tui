@@ -7,7 +7,7 @@
 
 ##  [聚缘阁代理一](https://x.co/jygtz)
 
-##  [聚缘阁代理二](http://u6.gg/dGEUB)
+##  [聚缘阁代理二](http://u6.gg/dGGY4)
 
 
 
