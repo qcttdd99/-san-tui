@@ -9,7 +9,9 @@
 
 ##  [聚缘阁代理二](http://u6.gg/dGNQT)
 
+##  [新唐人网络直播电脑版](http://x.co/dtwwz)
 
+##  [新唐人网络直播手机版](http://u6.gg/dGPbF)
 
 
 ## 亚马逊镜像  
