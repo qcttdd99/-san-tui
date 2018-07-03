@@ -8,7 +8,7 @@
 ##  [聚缘阁代理一](https://x.co/dtwtz1)
 
 
-##  [新唐人网络直播电脑版](http://x.co/dtwwz)
+##  [新唐人网络直播电脑版](https://x.co/xtrtz3)
 
 
 ## 亚马逊镜像  
