@@ -8,12 +8,6 @@
 
 ##  [聚缘阁代理一](https://x.co/ddf)
 
-##  [聚缘阁代理一](https://x.co/ret43)
-
-##  [聚缘阁代理一](http://x.co/juyuange99)
-
-
-
 
 
 ## 亚马逊镜像  
