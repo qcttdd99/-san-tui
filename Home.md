@@ -8,10 +8,6 @@
 ##  [聚缘阁代理一](https://x.co/dtwtz1)
 
 
-##  [新唐人网络直播电脑版](https://x.co/xtrtz3)
-
-##  [新唐人网络直播手机版](https://x.co/xtrsj2)
-
 
 
 
