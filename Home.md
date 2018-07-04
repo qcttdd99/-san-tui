@@ -12,13 +12,11 @@
 
 ## 亚马逊镜像  
 
-时而可访问，全凭好运气！
+亚马逊镜像正在调整中。。。
 
-## [镜像一](https://s3.amazonaws.com/dtw/index.html)
+### [神州正道翻墙代理](https://git.io/ccc)
 
-## [镜像二](https://s3.ap-northeast-2.amazonaws.com/haojyg/index.html)
 
-## [镜像三](https://s3-ap-southeast-1.amazonaws.com/jyg4/index.html)
 
 
 
