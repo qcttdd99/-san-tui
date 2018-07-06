@@ -9,9 +9,9 @@
 
 ##  [聚缘阁代理一](https://github.com/yuange99/4/wiki/q)
 
-##  [聚缘阁代理一](http://ducauq.jt2.turtlerider.ca/)
+##  [聚缘阁代理一](http://ducau5q.jt2.turtlerider.ca/)
 
-##  [聚缘阁代理一](http://duacuq.jt2.turtlerider.ca/)
+##  [聚缘阁代理一](http://duzacu5q.jt2.turtlerider.ca/)
 
 
 
