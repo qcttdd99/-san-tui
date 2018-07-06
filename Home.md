@@ -6,9 +6,9 @@
 
 ##  [聚缘阁代理三](http://t.cn/RdfUoio)
 
-##  [聚缘阁代理一](http://x.co/ddx)
+##  [聚缘阁代理一](http://u6.gg/dHVuw)
 
-##  [聚缘阁代理一](https://x.co/ddf)
+##  [聚缘阁代理一](http://kks.me/aEHDk)
 
 
 
