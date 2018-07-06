@@ -14,7 +14,9 @@
 ##  [聚缘阁代理一](http://duc5uewq.jt2.turtlerider.ca/)
 
 
+##  [新唐人网络直播电脑版](http://x.co/hao369tv)
 
+##  [新唐人网络直播手机版](https://x.co/xtrsj1)
 
 
 ## 亚马逊翻墙代理 
