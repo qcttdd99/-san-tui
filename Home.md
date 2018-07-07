@@ -5,13 +5,16 @@
 聚缘阁代理安卓版已经升级,浏览网页特别快，视频播放支持全屏。。。[点击下载](https://github.com/dtw9/9/raw/master/201861502.apk)
 
 
-##  [聚缘阁代理一](https://github.com/yuange99/4/wiki/q)
+##  [聚缘阁代理一](http://x.co/ddf)
 
-##  [聚缘阁代理一](https://github.com/yuange99/4/wiki/q)
+##  [聚缘阁代理一](http://x.co/ddx)
 
-##  [聚缘阁代理一](https://github.com/yuange99/4/wiki/q)
+##  [聚缘阁代理一](http://x.co/ddr)
 
-##  [聚缘阁代理一](https://github.com/yuange99/4/wiki/q)
+##  [聚缘阁代理一](http://x.co/ddg)
+
+##  [备用代理一](https://github.com/yuange99/4/wiki/q)
+
 
 
 
