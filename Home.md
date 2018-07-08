@@ -6,9 +6,9 @@
 
 ##  [聚缘阁代理一](http://x.co/ddf)
 
-##  [聚缘阁代理一](http://x.co/ddx)
+##  [聚缘阁代理一](https://x.co/ddx)
 
-##  [聚缘阁代理一](http://x.co/ddr)
+##  [聚缘阁代理一](https://x.co/ddr)
 
 
 
