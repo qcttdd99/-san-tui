@@ -7,7 +7,7 @@
 
 
 
-##  [翻墙入口一](http://x.co/ddg)
+##  [翻墙入口一](http://u6.gg/dLcKp)
 
 
 
