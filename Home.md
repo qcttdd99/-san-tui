@@ -7,7 +7,7 @@
 
 
 
-##  [翻墙入口一](http://u6.gg/dLcKp)
+##  [翻墙入口一](https://github.com/ju99/e/wiki/vc)
 
 
 
