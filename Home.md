@@ -7,7 +7,7 @@
 
 
 
-##  [翻墙入口一](https://github.com/ju99/e/wiki/vc)
+##  [翻墙入口一](https://x.co/ddr)
 
 
 
