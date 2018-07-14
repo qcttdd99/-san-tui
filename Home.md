@@ -7,7 +7,7 @@
 
 
 
-##  [翻墙入口一](https://x.co/ddr)
+##  [翻墙入口一](https://daili-jiami.herokuapp.com/547)
 
 
 
