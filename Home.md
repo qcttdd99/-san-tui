@@ -7,9 +7,6 @@
 
 
 
-##  [代理入口一](http://eq1.dt4.c3rbex.cf/)
-
-
 
 ##  [聚缘阁代理安卓版](https://github.com/dtw9/9/raw/master/201861502.apk)
 
