@@ -6,9 +6,8 @@
 
 
 
+##  [聚缘阁代理一](https://x.co/ddg)
 
-
-##  [聚缘阁代理安卓版](https://github.com/dtw9/9/raw/master/201861502.apk)
 
 ##  聚缘阁代理安卓版:https://git.io/jygapk
 
