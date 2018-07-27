@@ -5,6 +5,10 @@
 
 ###  [聚缘阁高速入口]( https://nnpsmlz7u8.execute-api.us-east-2.amazonaws.com/hao)
 
+###  [新唐人在线播放](https://40z00uhnp1.execute-api.us-east-2.amazonaws.com/xtr)
+
+###  [在线播放手机版](https://3r5lhxe3n9.execute-api.us-east-2.amazonaws.com/xtrsj)
+
 ## 亚马逊翻墙代理 
 
 时而可访问 请逐一点击
