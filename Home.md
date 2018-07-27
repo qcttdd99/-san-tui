@@ -1,6 +1,6 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
-# 轻松翻墙、从聚缘阁开始
+## 轻松翻墙、从聚缘阁开始
 
 ### [动态网高速入口](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t)
 
