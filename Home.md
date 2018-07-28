@@ -2,6 +2,8 @@
 
 ## 轻松翻墙、从聚缘阁开始
 
+wifi信号只有一格，也可以[高速观看新唐人在线播放](https://40z00uhnp1.execute-api.us-east-2.amazonaws.com/xtr)，赶快体验吧！
+
 ### [动态网高速入口](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t)
 
 ###  [聚缘阁高速入口]( https://nnpsmlz7u8.execute-api.us-east-2.amazonaws.com/hao)
