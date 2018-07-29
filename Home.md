@@ -1,5 +1,7 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
+晚上过来看[新唐人在线播放](https://40z00uhnp1.execute-api.us-east-2.amazonaws.com/xtr)
+
 
 ## 轻松翻墙、从聚缘阁开始
 
@@ -19,7 +21,6 @@
 
 ### [youtube视频网](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t/?id=17)
 
-###  [新唐人在线播放](https://40z00uhnp1.execute-api.us-east-2.amazonaws.com/xtr)
 
 ###  [在线播放手机版](https://3r5lhxe3n9.execute-api.us-east-2.amazonaws.com/xtrsj)
 
