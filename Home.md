@@ -6,9 +6,9 @@
 
 ## 聚缘阁翻墙代理 
 
- 请逐一点击
+时而可访问 请逐一点击
 
-### **[入口一](https://s3.amazonaws.com/dtw/jyg.html)** **[入口二](https://s3.eu-west-2.amazonaws.com/jyg2/jyg.html)**
+### **[入口一](https://0u8zywgj39.execute-api.ap-northeast-2.amazonaws.com/j)** **[入口二](https://0u8zywgj39.execute-api.ap-northeast-2.amazonaws.com/j)**
 
 ### **[入口三](https://s3-ap-southeast-1.amazonaws.com/jyg4/jyg.html)**  **[入口四](https://s3-ap-northeast-1.amazonaws.com/jyg9/jyg.html)**
 
