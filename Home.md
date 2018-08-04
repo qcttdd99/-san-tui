@@ -1,17 +1,28 @@
+
+
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
 
-**欢迎光临聚缘阁git网站**
 
-**这里白天封锁厉害**
+## 聚缘阁翻墙代理 
 
-**这里的翻墙网址都是临时的。**
+ 请逐一点击
 
-**请给聚缘阁来信索取稳定网址。**
+### **[入口一](https://s3.amazonaws.com/dtw/jyg.html)** **[入口二](https://s3.eu-west-2.amazonaws.com/jyg2/jyg.html)**
 
-###  [聚缘阁代理镜像](https://0u8zywgj39.execute-api.ap-northeast-2.amazonaws.com/j)
+### **[入口三](https://s3-ap-southeast-1.amazonaws.com/jyg4/jyg.html)**  **[入口四](https://s3-ap-northeast-1.amazonaws.com/jyg9/jyg.html)**
 
-###  [新唐人在线播放](https://40z00uhnp1.execute-api.us-east-2.amazonaws.com/xtr)
+### **[入口五](https://s3.ap-south-1.amazonaws.com/jyg5/jyg.html)**  **[入口六](https://s3-us-west-2.amazonaws.com/jyg7/jyg.html)**
 
+
+###  **[入口七](https://s3-us-west-1.amazonaws.com/jyg6/jyg.html)**  **[入口八](https://s3-eu-west-1.amazonaws.com/jyg8/jyg.html)**
+
+
+###  **[入口九](https://s3.eu-central-1.amazonaws.com/jyg3/jyg.html)**  **[入口十](https://s3-ap-southeast-2.amazonaws.com/jyg1/jyg.html)**
+
+
+##  聚缘阁代理安卓版
+
+### https://git.io/jygapk
 
 
