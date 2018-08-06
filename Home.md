@@ -2,7 +2,7 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
-
+###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)
 
 ## 聚缘阁翻墙代理 
 
