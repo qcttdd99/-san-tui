@@ -6,7 +6,7 @@
 
 ## 聚缘阁翻墙代理 
 
-时而可访问 请逐一点击
+ 请逐一点击
 
 ### **[入口一](https://0zpzup6k8i.execute-api.ap-northeast-2.amazonaws.com/h)** **[入口二](https://0u8zywgj39.execute-api.ap-northeast-2.amazonaws.com/j)**
 
