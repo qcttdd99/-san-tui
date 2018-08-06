@@ -10,7 +10,7 @@
 
 ### **[入口一](https://0zpzup6k8i.execute-api.ap-northeast-2.amazonaws.com/h)** **[入口二](https://0u8zywgj39.execute-api.ap-northeast-2.amazonaws.com/j)**
 
-### **[入口三]( https://fx1wcpl311.execute-api.ap-southeast-1.amazonaws.com/x)**  **[入口四]( https://fx1wcpl311.execute-api.ap-southeast-1.amazonaws.com/x)**
+### **[入口三]( https://sit6rb4ewf.execute-api.us-east-1.amazonaws.com/12)**  **[入口四]( https://sit6rb4ewf.execute-api.us-east-1.amazonaws.com/12)**
 
 ### **[入口五](https://s3.ap-south-1.amazonaws.com/jyg5/jyg.html)**  **[入口六](https://s3-us-west-2.amazonaws.com/jyg7/jyg.html)**
 
