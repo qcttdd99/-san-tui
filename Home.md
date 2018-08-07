@@ -2,13 +2,13 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
-###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)
+
 
 ## 聚缘阁翻墙代理 
 
  请逐一点击
 
-### **[入口一](https://0zpzup6k8i.execute-api.ap-northeast-2.amazonaws.com/h)** **[入口二](https://0u8zywgj39.execute-api.ap-northeast-2.amazonaws.com/j)**
+### **[入口一](https://0zpzup6k8i.execute-api.ap-northeast-2.amazonaws.com/h)** **[入口二]( https://4mxa4kxdwh.execute-api.us-east-1.amazonaws.com/e)**
 
 ### **[入口三]( https://sit6rb4ewf.execute-api.us-east-1.amazonaws.com/12)**  **[入口四]( https://sit6rb4ewf.execute-api.us-east-1.amazonaws.com/12)**
 
