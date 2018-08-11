@@ -7,7 +7,7 @@
 
 请逐一点击
 
-### **[入口一](https://s3.amazonaws.com/dtw/jyg.html)** **[入口二](https://0zpzup6k8i.execute-api.ap-northeast-2.amazonaws.com/811)**
+### **[入口一](https://0zpzup6k8i.execute-api.ap-northeast-2.amazonaws.com/811)** **[入口二](https://0zpzup6k8i.execute-api.ap-northeast-2.amazonaws.com/811)**
 
 ### **[入口三](https://s3-ap-southeast-1.amazonaws.com/jyg4/jyg.html)**  **[入口四](https://s3-ap-northeast-1.amazonaws.com/jyg9/jyg.html)**
 
