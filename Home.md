@@ -1,6 +1,7 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
+### [动态网高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99)
 
 ## 聚缘阁翻墙代理 
 
