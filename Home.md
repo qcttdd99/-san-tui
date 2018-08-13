@@ -3,6 +3,10 @@
 
 ### [动态网高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99)
 
+### [新唐人高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99/?id=5)
+
+### [大纪元高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99/?id=7)
+
 ## 聚缘阁翻墙代理 
 
 请逐一点击
