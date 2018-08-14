@@ -1,21 +1,6 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
-## 轻松翻墙、从聚缘阁开始
-
-### [动态网高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99)
-
-###  [聚缘阁视频网]( https://6tzjzrriw9.execute-api.ap-northeast-2.amazonaws.com/jygtv)
-
-###  [聚缘阁高速入口]( https://nnpsmlz7u8.execute-api.us-east-2.amazonaws.com/hao)
-
-### [新唐人高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99/?id=5)
-
-### [大纪元高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99/?id=7)
-
-###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)
-
-###  [在线播放手机版](https://3r5lhxe3n9.execute-api.us-east-2.amazonaws.com/xtrsj)
 
 
 ## 聚缘阁翻墙代理 
