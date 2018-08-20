@@ -7,7 +7,7 @@
 
 ### [动态网高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99)
 
-###  [聚缘阁高速入口]( https://nnpsmlz7u8.execute-api.us-east-2.amazonaws.com/hao)
+
 
 
 ###  [聚缘阁视频网](https://dca4hqir96.execute-api.ap-southeast-1.amazonaws.com/tv2)
