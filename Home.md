@@ -12,6 +12,10 @@
 
 ###  [聚缘阁高速入口]( https://nnpsmlz7u8.execute-api.us-east-2.amazonaws.com/hao)
 
+###  [聚缘阁视频网](https://dca4hqir96.execute-api.ap-southeast-1.amazonaws.com/tv2)
+
+###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)
+
 ### [新唐人高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=5)
 
 ### [大纪元高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=7)
