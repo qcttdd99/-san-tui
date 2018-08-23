@@ -5,21 +5,13 @@
 
 ## 轻松翻墙、从聚缘阁开始
 
-### [动态网高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99)
+
 
 ###  [动态网高速口二](https://x.co/ddg)
 
 
 
-### [新唐人高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99/?id=5)
 
-### [明慧网高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99/?id=3)
-
-### [大纪元高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99/?id=7)
-
-### [退党网高速入口](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99/?id=8)
-
-### [youtube视频网](https://ds3fhsuuwg.execute-api.ap-northeast-2.amazonaws.com/99/?id=17)
 
 ## 聚缘阁翻墙代理 
 
