@@ -18,6 +18,8 @@
 
 ###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)
 
+### [youtube视频网](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=17)
+
 ### [退党网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=8)
 
 ### [明慧网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=3)
