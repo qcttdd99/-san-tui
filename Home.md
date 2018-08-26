@@ -17,7 +17,8 @@
 
 ###  [聚缘阁视频网](https://dca4hqir96.execute-api.ap-southeast-1.amazonaws.com/tv2)
 
-###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)
+###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+
 
 ### [youtube视频网](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=17)
 
