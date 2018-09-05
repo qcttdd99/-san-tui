@@ -10,24 +10,11 @@
 
 ###  [动态网高速口二](https://x.co/ddg)
 
-### [动态网高速入口](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t)
+
 
 ###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
 
-###  [聚缘阁高速入口]( https://nnpsmlz7u8.execute-api.us-east-2.amazonaws.com/hao)
-
-### [新唐人高速入口](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t/?id=5)
-
-### [大纪元高速入口](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t/?id=7)
-
-### [明慧网高速入口](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t/?id=3)
-
-### [退党网高速入口](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t/?id=8)
-
-### [禁闻网高速入口](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t/?id=16)
-
-### [youtube视频网](https://2xrhcac322.execute-api.us-east-1.amazonaws.com/t/?id=17)
 
 
 
