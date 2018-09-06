@@ -8,7 +8,7 @@
 
 
 
-###  [动态网高速口二](https://x.co/ddg)
+###  [动态网高速口二](http://aage.se.tsjg.ga)
 
 
 
