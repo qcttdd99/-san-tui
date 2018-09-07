@@ -10,7 +10,7 @@
 
 ###  [动态网高速口二](https://2bn9nebjz1.execute-api.us-east-2.amazonaws.com/ds)
 
-
+###  [动态网高速口一](https://x.co/ddg)
 
 ###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
