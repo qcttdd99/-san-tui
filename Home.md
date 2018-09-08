@@ -6,7 +6,6 @@
 ## 轻松翻墙、从聚缘阁开始
 
 
-### [动态网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j)
 
 
 ###  [动态网高速口一](https://x.co/ddg)
