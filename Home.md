@@ -5,13 +5,11 @@
 
 ## 轻松翻墙、从聚缘阁开始
 
- ###  [动态网高速入口](https://lbs3fqw945.execute-api.ap-northeast-1.amazonaws.com/b)
 
- ###  [动态网高速口一](https://neshv501d3.execute-api.us-east-1.amazonaws.com/147)
 
 ###  [动态网高速口二](https://x.co/ddg)
 
-### [新唐人高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=5)
+
 
 
 ###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
