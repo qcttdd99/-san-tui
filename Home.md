@@ -15,6 +15,9 @@
 
 ###  [动态网高速口三](https://x.co/ddf)
 
+###  [聚缘阁代理论坛](https://3ckv22ggj3.execute-api.ap-northeast-2.amazonaws.com/jygbbs)![](https://raw.githubusercontent.com/hao369/a/master/jiaru.gif)
+
+
 ### [退党网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=8)
 
 ### [明慧网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=3)
