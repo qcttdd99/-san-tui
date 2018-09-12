@@ -5,25 +5,7 @@
 
 ## 轻松翻墙、从聚缘阁开始
 
-### [动态网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j?id=0000002)
 
-
-
-###  [聚缘阁高速入口](https://nnpsmlz7u8.execute-api.us-east-2.amazonaws.com/hao)
-
-
-
-### [退党网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=00008)
-
-### [明慧网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=00003)
-
-### [新唐人高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=0005)
-
-### [大纪元高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=0007)
-
-### [法轮大法网入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=000015)
-
-### [禁闻网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=000016)
 
 ###  [动态网高速口二](https://x.co/ddg)
 
