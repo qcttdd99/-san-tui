@@ -5,29 +5,13 @@
 
 ## 轻松翻墙、从聚缘阁开始
 
-###  [新唐人在线播放]( https://cmlm3qmcy4.execute-api.us-east-2.amazonaws.com/v2)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
-
-### [动态网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=2)
 
 ###  [动态网高速口二](https://x.co/ddg)
 
 
 ###  [动态网高速口三](https://x.co/ddf)
 
-###  [聚缘阁代理论坛](https://3ckv22ggj3.execute-api.ap-northeast-2.amazonaws.com/jygbbs)![](https://raw.githubusercontent.com/hao369/a/master/jiaru.gif)
-
-
-### [退党网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=8)
-
-### [明慧网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=3)
-
-### [新唐人高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=5)
-
-
-
-
-###  [聚缘阁视频网](https://dca4hqir96.execute-api.ap-southeast-1.amazonaws.com/tv2)
 
 
 
