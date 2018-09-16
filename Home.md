@@ -13,6 +13,8 @@
 
 ###  [聚缘阁高速入口](https://nnpsmlz7u8.execute-api.us-east-2.amazonaws.com/hao)
 
+###  [聚缘阁代理论坛](https://3ckv22ggj3.execute-api.ap-northeast-2.amazonaws.com/jygbbs)![](https://raw.githubusercontent.com/hao369/a/master/jiaru.gif)
+
 ###  [动态网高速口二](https://x.co/ddg)
 
 
