@@ -7,6 +7,21 @@
 
 ### [动态网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=02)
 
+###  [新唐人在线播放](https://gda6wd4boi.execute-api.us-east-2.amazonaws.com/t)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+
+
+### [退党网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=8)
+
+### [明慧网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=3)
+
+### [新唐人高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=5)
+
+### [大纪元高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=7)
+
+### [法轮大法网入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=15)
+
+### [禁闻网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=16)
+
 
 ###  [动态网高速口二](https://x.co/ddg)
 
