@@ -5,6 +5,8 @@
 
 ## 轻松翻墙、从聚缘阁开始
 
+###  [聚缘阁代理镜像](https://lbs3fqw945.execute-api.ap-northeast-1.amazonaws.com/b)
+
 ### [动态网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=02)
 
 ###  [新唐人在线播放](https://gda6wd4boi.execute-api.us-east-2.amazonaws.com/t)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
