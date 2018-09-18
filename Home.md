@@ -7,7 +7,7 @@
 
 
 
-### [动态网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=02)
+### [动态网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=000002)
 
 
 
