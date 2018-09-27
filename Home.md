@@ -7,7 +7,7 @@
 
 
 
-###  [动态网高速入口](http://hao.mbjn.ga/2)
+###  [动态网高速入口](http://y22.yapiforum.net/2)
 
 
 ###  [新唐人在线播放](https://gda6wd4boi.execute-api.us-east-2.amazonaws.com/t)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
