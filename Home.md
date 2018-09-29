@@ -5,31 +5,28 @@
 
 ## 轻松翻墙、从聚缘阁开始
 
+**本站固定域名https://x.co/2355**
 
+_全程SSL加密传送_
 
-###  [动态网高速入口](http://y22a.yapiforum.net/2)
+###  [动态网高速入口](https://0es6ll4086.execute-api.us-east-2.amazonaws.com/h/?id=2)
 
-###  [退党网高速入口](http://y22a.yapiforum.net/8)
+###  [退党网高速入口](https://0es6ll4086.execute-api.us-east-2.amazonaws.com/h/?id=8)
 
-###  [大纪元高速入口](http://lin1.9987.us/7)
+###  [大纪元高速入口](https://0es6ll4086.execute-api.us-east-2.amazonaws.com/h/?id=7)
 
-###  [新唐人高速入口](http://lin1.9987.us/5)
+###  [新唐人高速入口](https://0es6ll4086.execute-api.us-east-2.amazonaws.com/h/?id=5)
 
+ ###  [聚缘阁代理镜像](https://lbs3fqw945.execute-api.ap-northeast-1.amazonaws.com/b)
 
 ###  [新唐人在线播放](https://gda6wd4boi.execute-api.us-east-2.amazonaws.com/t)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
-
 
 ###  [聚缘阁视频网](https://dca4hqir96.execute-api.ap-southeast-1.amazonaws.com/tv2)
 
 
 ###  [动态网高速口二](https://x.co/ddg)
 
-
 ###  [动态网高速口三](https://x.co/ddf)
-
-
-
-
 
 
 
