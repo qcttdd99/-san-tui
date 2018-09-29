@@ -17,7 +17,7 @@ _全程SSL加密传送_
 
 ###  [大纪元高速入口](http://12e.btjj.cf/7)
 
-###  [youtube高速入口](http://12e.btjj.cf/19)
+###  [youtube高速入口](http://12e.btjj.cf/19)![](https://raw.githubusercontent.com/hao369/a/master/mianfei.gif)
 
 ###  [新唐人高速入口](https://dhps96it0d.execute-api.ap-northeast-2.amazonaws.com/j1/?id=5)
 
