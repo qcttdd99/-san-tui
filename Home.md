@@ -11,7 +11,7 @@ _全程SSL加密传送_
 
 _全程SSL加密传送_
 
-###  [动态网高速入口](https://dhps96it0d.execute-api.ap-northeast-2.amazonaws.com/j1/?id=2)
+###  [动态网高速入口](http://12e.btjj.cf/2)
 
 ###  [退党网高速入口](https://dhps96it0d.execute-api.ap-northeast-2.amazonaws.com/j1/?id=8)
 
