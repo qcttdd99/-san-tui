@@ -19,7 +19,7 @@ _全程SSL加密传送_
 
 ###  [新唐人高速入口](https://dhps96it0d.execute-api.ap-northeast-2.amazonaws.com/j1/?id=5)
 
- ###  [聚缘阁代理镜像](https://lbs3fqw945.execute-api.ap-northeast-1.amazonaws.com/b)
+ ###  [聚缘阁代理镜像](https://7ikrpzyk13.execute-api.ap-northeast-2.amazonaws.com/jxtz)
 
 ###  [新唐人在线播放](https://8irsrg16e3.execute-api.ap-northeast-2.amazonaws.com/xtr)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
