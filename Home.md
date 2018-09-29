@@ -17,6 +17,8 @@ _全程SSL加密传送_
 
 ###  [大纪元高速入口](http://12e.btjj.cf/7)
 
+###  [youtube高速入口](http://12e.btjj.cf/19)
+
 ###  [新唐人高速入口](https://dhps96it0d.execute-api.ap-northeast-2.amazonaws.com/j1/?id=5)
 
  ###  [聚缘阁代理镜像](https://7ikrpzyk13.execute-api.ap-northeast-2.amazonaws.com/jxtz)
