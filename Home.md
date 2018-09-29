@@ -9,13 +9,15 @@
 
 _全程SSL加密传送_
 
-###  [动态网高速入口](https://0es6ll4086.execute-api.us-east-2.amazonaws.com/h/?id=2)
+_全程SSL加密传送_
 
-###  [退党网高速入口](https://0es6ll4086.execute-api.us-east-2.amazonaws.com/h/?id=8)
+###  [动态网高速入口](https://dhps96it0d.execute-api.ap-northeast-2.amazonaws.com/j1/?id=2)
 
-###  [大纪元高速入口](https://0es6ll4086.execute-api.us-east-2.amazonaws.com/h/?id=7)
+###  [退党网高速入口](https://dhps96it0d.execute-api.ap-northeast-2.amazonaws.com/j1/?id=8)
 
-###  [新唐人高速入口](https://0es6ll4086.execute-api.us-east-2.amazonaws.com/h/?id=5)
+###  [大纪元高速入口](https://dhps96it0d.execute-api.ap-northeast-2.amazonaws.com/j1/?id=7)
+
+###  [新唐人高速入口](https://dhps96it0d.execute-api.ap-northeast-2.amazonaws.com/j1/?id=5)
 
  ###  [聚缘阁代理镜像](https://lbs3fqw945.execute-api.ap-northeast-1.amazonaws.com/b)
 
