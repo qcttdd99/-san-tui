@@ -7,13 +7,13 @@
 
 
 
-###  [动态网高速入口](http://y22.yapiforum.net/2)
+###  [动态网高速入口](http://y22a.yapiforum.net/2)
 
-###  [退党网高速入口](http://y22.yapiforum.net/8)
+###  [退党网高速入口](http://y22a.yapiforum.net/8)
 
-###  [大纪元高速入口](http://y22.yapiforum.net/7)
+###  [大纪元高速入口](http://y22a.yapiforum.net/7)
 
-###  [新唐人高速入口](http://y22.yapiforum.net/5)
+###  [新唐人高速入口](http://y22a.yapiforum.net/5)
 
 
 ###  [新唐人在线播放](https://gda6wd4boi.execute-api.us-east-2.amazonaws.com/t)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
