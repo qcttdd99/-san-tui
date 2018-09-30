@@ -17,7 +17,7 @@ _全程SSL加密传送_
 
 ###  [新唐人高速入口](http://3.1jje.lvuk.cf/5)
 
-###  [youtube网入口](https://12e.btjj.cf/19)![](https://raw.githubusercontent.com/hao369/a/master/mianfei.gif)
+###  [youtube网入口](http://3.1jje.lvuk.cf/19)![](https://raw.githubusercontent.com/hao369/a/master/mianfei.gif)
 
  ###  [聚缘阁代理镜像](https://7ikrpzyk13.execute-api.ap-northeast-2.amazonaws.com/jxtz)
 
