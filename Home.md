@@ -10,7 +10,7 @@
 _全程SSL加密传送_
 
 
- ###  [聚缘阁代理镜像](https://7ikrpzyk13.execute-api.ap-northeast-2.amazonaws.com/jxtz)
+ ###  [聚缘阁代理镜像](https://gb76gq8ptg.execute-api.us-east-2.amazonaws.com/jx)
 
 ###  [新唐人在线播放](http://xtr.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
