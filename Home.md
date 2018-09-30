@@ -23,7 +23,7 @@ _全程SSL加密传送_
 
 ###  [新唐人在线播放](http://xtr.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
-###  [聚缘阁视频网](https://39fk9p24uk.execute-api.ap-northeast-2.amazonaws.com/k)
+###  [聚缘阁视频网](http://jygrv.1jje.lvuk.cf)
 
 ###  [禁闻网高速入口](http://3.1jje.lvuk.cf/16)
 
