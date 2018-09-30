@@ -9,15 +9,6 @@
 
 _全程SSL加密传送_
 
-###  [动态网高速入口](http://3.1jje.lvuk.cf/?id=2)
-
-###  [退党网高速入口](http://3.1jje.lvuk.cf/8)
-
-###  [大纪元高速入口](http://3.1jje.lvuk.cf/7)
-
-###  [新唐人高速入口](http://3.1jje.lvuk.cf/5)
-
-###  [youtube网入口](http://3.1jje.lvuk.cf/19)![](https://raw.githubusercontent.com/hao369/a/master/mianfei.gif)
 
  ###  [聚缘阁代理镜像](https://7ikrpzyk13.execute-api.ap-northeast-2.amazonaws.com/jxtz)
 
@@ -25,11 +16,7 @@ _全程SSL加密传送_
 
 ###  [聚缘阁视频网](http://jygrv.1jje.lvuk.cf)
 
-###  [禁闻网高速入口](http://3.1jje.lvuk.cf/16)
 
-###  [明慧网高速入口](http://3.1jje.lvuk.cf/3)
-
-###  [法轮大法入口一](http://3.1jje.lvuk.cf/15)
 
 ###  [动态网高速口二](https://x.co/ddg)
 
