@@ -21,7 +21,7 @@ _全程SSL加密传送_
 
  ###  [聚缘阁代理镜像](https://7ikrpzyk13.execute-api.ap-northeast-2.amazonaws.com/jxtz)
 
-###  [新唐人在线播放](https://xtr.wuom.ga)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+###  [新唐人在线播放](http://xtr.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
 ###  [聚缘阁视频网](https://39fk9p24uk.execute-api.ap-northeast-2.amazonaws.com/k)
 
