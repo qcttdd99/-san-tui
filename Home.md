@@ -9,10 +9,19 @@
 
 _全程SSL加密传送_
 
+### [退党网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=8)
 
- ###  [聚缘阁代理镜像](https://gb76gq8ptg.execute-api.us-east-2.amazonaws.com/jx)
+### [明慧网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=3)
 
- ###  [聚缘阁代理镜像](https://1w6ovt0hsi.execute-api.us-east-2.amazonaws.com/1)
+### [新唐人高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=5)
+
+### [大纪元高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=7)
+
+### [法轮大法网入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=15)
+
+### [禁闻网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=16)
+
+
 
 ###  [新唐人在线播放](http://xtr.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
