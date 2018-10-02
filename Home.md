@@ -9,6 +9,8 @@
 
 _全程SSL加密传送_
 
+### [动态网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=2)
+
 ### [退党网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=8)
 
 ### [明慧网高速入口](https://me1yafdgw9.execute-api.ap-northeast-2.amazonaws.com/j/?id=3)
