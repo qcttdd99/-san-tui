@@ -9,7 +9,7 @@
 
 _全程SSL加密传送_
 
-###  [新唐人在线播放](http://xtr1.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+###  [新唐人在线播放](http://xtra.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
 ### [动态网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=2)
 
