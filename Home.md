@@ -9,6 +9,8 @@
 
 _全程SSL加密传送_
 
+###  [新唐人在线播放](http://xtr1.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+
 ### [动态网高速入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=2)
 
 ### [退党网高速入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=8)
@@ -23,12 +25,9 @@ _全程SSL加密传送_
 
 ### [禁闻网高速入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=16)
 
- ###  [聚缘阁代理镜像](https://gb76gq8ptg.execute-api.us-east-2.amazonaws.com/jx)
-
- ###  [聚缘阁代理镜像](https://1w6ovt0hsi.execute-api.us-east-2.amazonaws.com/1)
 
 
-###  [新唐人在线播放](http://xtr1.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+
 
 ###  [聚缘阁视频网](http://tv1.1jje.lvuk.cf)
 
