@@ -11,24 +11,19 @@ _全程SSL加密传送_
 
 ###  [新唐人在线播放](http://xtr1.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
-### [动态网高速入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=2)
+### [动态网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=2)
 
-### [退党网高速入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=8)
+### [退党网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=8)
 
-### [明慧网高速入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=3)
+### [明慧网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=3)
 
-### [新唐人高速入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=5)
+### [新唐人高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=5)
 
-### [大纪元高速入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=7)
+### [大纪元高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=7)
 
-### [法轮大法网入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=15)
+### [法轮大法网入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=15)
 
-### [禁闻网高速入口](https://borzughiib.execute-api.us-east-2.amazonaws.com/c/?id=16)
-
-
-
-
-
+### [禁闻网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=16)
 ###  [聚缘阁视频网](http://tv1.1jje.lvuk.cf)
 
 
