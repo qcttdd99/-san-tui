@@ -24,7 +24,8 @@ _全程SSL加密传送_
 ### [法轮大法网入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=15)
 
 ### [禁闻网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=16)
-###  [聚缘阁视频网](http://tv1.1jje.lvuk.cf)
+
+###  [聚缘阁视频网](http://tv.bihy.gq)
 
 
 
