@@ -9,6 +9,8 @@
 
 _全程SSL加密传送_
 
+###  [聚缘阁-古典音乐](http://h.ijyg.izki.me/t-1-7)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+
 ###  [新唐人在线播放](http://xtra.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
 ###  [聚缘阁视频网](http://tv2.fs32.tk)
