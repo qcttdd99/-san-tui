@@ -25,7 +25,7 @@ _全程SSL加密传送_
 
 ### [禁闻网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=16)
 
-###  [聚缘阁视频网](http://tv.bihy.gq)
+###  [聚缘阁视频网](http://tv2.fs32.tk)
 
 
 
