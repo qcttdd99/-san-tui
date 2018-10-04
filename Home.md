@@ -11,6 +11,8 @@ _全程SSL加密传送_
 
 ###  [新唐人在线播放](http://xtra.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
+###  [聚缘阁视频网](http://tv2.fs32.tk)
+
 ### [动态网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=2)
 
 ### [退党网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=8)
@@ -25,13 +27,9 @@ _全程SSL加密传送_
 
 ### [禁闻网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=16)
 
-###  [聚缘阁视频网](http://tv2.fs32.tk)
 
 
 
-###  [动态网高速口二](https://x.co/ddg)
-
-###  [动态网高速口三](https://x.co/ddf)
 
 
 
