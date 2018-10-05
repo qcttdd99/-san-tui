@@ -9,26 +9,30 @@
 
 _全程SSL加密传送_
 
-###  [聚缘阁-古典音乐](http://h.ijyg.izki.me/t-1-7)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
-###  [新唐人在线播放](http://xtra.1jje.lvuk.cf)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
-###  [聚缘阁视频网](http://tv2.fs32.tk)
 
-### [动态网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=2)
+###  [聚缘阁-古典音乐](http://j1a.ijyg.izki.me/t-1-7)![](https://raw.githubusercontent.com/hao369/a/master/mianfei.gif)
 
-### [退党网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=8)
 
-### [明慧网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=3)
+### [动态网高速入口](http://5aae.ijyg.izki.me/?id=2)
 
-### [新唐人高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=5)
+###  [聚缘阁视频网](http://v22a.ijyg.izki.me)
 
-### [大纪元高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=7)
 
-### [法轮大法网入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=15)
+###  [新唐人在线播放](http://xa.ijyg.izki.me)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
-### [禁闻网高速入口](https://0dtjf6gvye.execute-api.ap-northeast-2.amazonaws.com/n/?id=16)
+### [退党网高速入口](http://5aae.ijyg.izki.me/?id=8)
 
+### [明慧网高速入口](http://5aae.ijyg.izki.me/?id=3)
+
+### [新唐人高速入口](http://5aae.ijyg.izki.me/?id=5)
+
+### [大纪元高速入口](http://5aae.ijyg.izki.me/?id=7)
+
+### [法轮大法网入口](http://5aae.ijyg.izki.me/?id=15)
+
+### [禁闻网高速入口](http://5aae.ijyg.izki.me/?id=16)
 
 
 
