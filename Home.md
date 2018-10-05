@@ -17,7 +17,7 @@ _全程SSL加密传送_
 ###  [聚缘阁视频网](http://v22a.ijyg.izki.me)
 
 
-###  [新唐人在线播放](http://xa.ijyg.izki.me)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+###  [新唐人在线播放](https://tn8k6hwij4.execute-api.us-east-2.amazonaws.com/x)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
 ### [退党网高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=8)
 
