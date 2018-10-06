@@ -11,9 +11,6 @@ _全程SSL加密传送_
 
 
 
- ###  [聚缘阁代理镜像一](https://gb76gq8ptg.execute-api.us-east-2.amazonaws.com/jx)
-
- ###  [聚缘阁代理镜像二](https://1w6ovt0hsi.execute-api.us-east-2.amazonaws.com/1)
 
  ###  [聚缘阁代理论坛](https://x.co/jygbbs)
 
