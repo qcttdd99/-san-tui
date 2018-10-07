@@ -37,6 +37,8 @@ _全程SSL加密传送_
 
 ### [禁闻网高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=16)
 
+### [youtube视频网](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=19)
+
 
 
 ***
