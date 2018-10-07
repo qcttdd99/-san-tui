@@ -38,12 +38,14 @@ _全程SSL加密传送_
 ### [禁闻网高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=16)
 
 
+__
 
 
+##  聚缘阁代理安卓版
 
+### https://git.io/jygapk
 
-
-
+__
 
 ## 聚缘阁翻墙代理 
 
@@ -61,8 +63,6 @@ _全程SSL加密传送_
 
 ###  **[入口九](https://s3.eu-central-1.amazonaws.com/jyg3/jyg.html)**  **[入口十](https://s3-ap-southeast-2.amazonaws.com/jyg1/jyg.html)**
 
-##  聚缘阁代理安卓版
 
-### https://git.io/jygapk
 
 
