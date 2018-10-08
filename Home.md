@@ -16,27 +16,27 @@ _全程SSL加密传送_
 
 
 
-### [动态网高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=2)
+### [动态网高速入口](http://gfu.lytewe.lirekit.eu/?id=2)
 
-###  [聚缘阁视频网](http://tve3.fs32.tk)
+###  [聚缘阁视频网](http://tve3.fs32.tk/)
 
 
+###  [新唐人在线播放](https://s94xnw8hfc.execute-api.us-east-2.amazonaws.com/0)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
-###  [新唐人在线播放](https://tn8k6hwij4.execute-api.us-east-2.amazonaws.com/x)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+### [退党网高速入口](http://gfu.lytewe.lirekit.eu/?id=8)
 
-### [退党网高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=8)
+### [明慧网高速入口](http://gfu.lytewe.lirekit.eu/?id=3)
 
-### [明慧网高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=3)
+### [新唐人高速入口](http://gfu.lytewe.lirekit.eu/?id=5)
 
-### [新唐人高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=5)
+### [大纪元高速入口](http://gfu.lytewe.lirekit.eu/?id=7)
 
-### [大纪元高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=7)
+### [法轮大法网入口](http://gfu.lytewe.lirekit.eu/?id=15)
 
-### [法轮大法网入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=15)
+### [禁闻网高速入口](http://gfu.lytewe.lirekit.eu/?id=16)
 
-### [禁闻网高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=16)
+### [youtube视频网](http://gfu.lytewe.lirekit.eu/?id=19)
 
-### [youtube视频网](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=19)
 
 
 
