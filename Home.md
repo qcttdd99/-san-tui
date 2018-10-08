@@ -18,7 +18,7 @@ _全程SSL加密传送_
 
 ### [动态网高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=2)
 
-###  [聚缘阁视频网](http://v22a.ijyg.izki.me)
+###  [聚缘阁视频网](http://tve3.fs32.tk)
 
 
 
