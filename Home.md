@@ -14,14 +14,13 @@ _全程SSL加密传送_
 
 
 
-###  [聚缘阁-古典音乐](http://j1a.ijyg.izki.me/t-1-7)![](https://raw.githubusercontent.com/hao369/a/master/mianfei.gif)
 
 
 ### [动态网高速入口](https://6souqmk08e.execute-api.us-east-2.amazonaws.com/5/?id=2)
 
 ###  [聚缘阁视频网](http://v22a.ijyg.izki.me)
 
- ###  [聚缘阁代理镜像](https://1w6ovt0hsi.execute-api.us-east-2.amazonaws.com/1)
+
 
 ###  [新唐人在线播放](https://tn8k6hwij4.execute-api.us-east-2.amazonaws.com/x)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
