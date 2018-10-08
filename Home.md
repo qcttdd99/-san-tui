@@ -21,7 +21,7 @@ _全程SSL加密传送_
 ###  [聚缘阁视频网](http://tve3.fs32.tk/)
 
 
-###  [新唐人在线播放](https://s94xnw8hfc.execute-api.us-east-2.amazonaws.com/0)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
+###  [新唐人在线播放](https://9m8otprtea.execute-api.ap-northeast-2.amazonaws.com/969)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
 ### [退党网高速入口](http://gfu.lytewe.lirekit.eu/?id=8)
 
