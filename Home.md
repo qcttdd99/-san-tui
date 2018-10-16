@@ -14,6 +14,8 @@ _全程SSL加密传送_
 
 ###  [聚缘阁视频网](http://tve3.fs32.tk/)
 
+###  [聚缘阁高速入口](  http://haojyg.awnn.ml/t-1-7)
+
 ###  [新唐人在线播放](https://9m8otprtea.execute-api.ap-northeast-2.amazonaws.com/969)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
 
 ### [退党网高速入口](https://30ic6wngkd.execute-api.ap-northeast-2.amazonaws.com/5/?id=8)
