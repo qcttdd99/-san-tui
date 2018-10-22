@@ -10,27 +10,7 @@
 _全程SSL加密传送_
 
 
-### [动态网高速入口](https://iyq6cog0g9.execute-api.ap-northeast-2.amazonaws.com/220/?id=2)
 
-###  [聚缘阁视频网]( https://ovyda2b8d5.execute-api.ap-northeast-2.amazonaws.com/jygtv3)
-
-###  [聚缘阁高速入口]( http://h5847.dj5e.dmobd.com/t-1-7)
-
-###  [新唐人在线播放](https://9m8otprtea.execute-api.ap-northeast-2.amazonaws.com/969)![](https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif)
-
-### [退党网高速入口](https://iyq6cog0g9.execute-api.ap-northeast-2.amazonaws.com/220/?id=8)
-
-### [明慧网高速入口](https://iyq6cog0g9.execute-api.ap-northeast-2.amazonaws.com/220/?id=3)
-
-### [新唐人高速入口](https://iyq6cog0g9.execute-api.ap-northeast-2.amazonaws.com/220/?id=5)
-
-### [大纪元高速入口](https://iyq6cog0g9.execute-api.ap-northeast-2.amazonaws.com/220/?id=7)
-
-### [法轮大法网入口](https://iyq6cog0g9.execute-api.ap-northeast-2.amazonaws.com/220/?id=15)
-
-### [禁闻网高速入口](https://iyq6cog0g9.execute-api.ap-northeast-2.amazonaws.com/220/?id=16)
-
-### [youtube视频网](https://iyq6cog0g9.execute-api.ap-northeast-2.amazonaws.com/220/?id=19)
 
 
 
