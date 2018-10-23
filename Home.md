@@ -17,6 +17,12 @@ _全程SSL加密传送_
 
 
 ***
+### [动态网高速入口](https://ggwlui9kx6.execute-api.ap-northeast-2.amazonaws.com/55tz/?id=2)
+
+### [新唐人高速入口](https://ggwlui9kx6.execute-api.ap-northeast-2.amazonaws.com/55tz/?id=5)
+
+### [大纪元高速入口](https://ggwlui9kx6.execute-api.ap-northeast-2.amazonaws.com/55tz/?id=7)
+
 ### [代理镜像入口一](https://q9h5rdvfbe.execute-api.ap-northeast-2.amazonaws.com/re5v)
 
 ### [新唐人网络直播](https://sjbdxmqr6h.execute-api.ap-northeast-2.amazonaws.com/6435)
