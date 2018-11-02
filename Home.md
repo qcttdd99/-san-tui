@@ -19,9 +19,9 @@ _全程SSL加密传送_
 ***
 
 
-### [聚缘阁高速入口](https://pv5oe8fxw7.execute-api.us-east-2.amazonaws.com/jnet4)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://bh7u5gvhaf.execute-api.ap-northeast-2.amazonaws.com/j8uyy)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [聚缘阁视频网一](https://estrpm736f.execute-api.us-east-2.amazonaws.com/tv43a)
+### [聚缘阁视频网一](https://ut5f78g0k3.execute-api.ap-northeast-2.amazonaws.com/1488k)
 
 ### [动态网高速入口]( https://shnnnc9xij.execute-api.ap-northeast-2.amazonaws.com/nhbffr/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
@@ -31,7 +31,7 @@ _全程SSL加密传送_
 
 ### [聚缘阁代理镜像](https://q9h5rdvfbe.execute-api.ap-northeast-2.amazonaws.com/re5v)
 
-### [新唐人网络直播](https://sjbdxmqr6h.execute-api.ap-northeast-2.amazonaws.com/6435)
+### [新唐人网络直播](https://p8p18cihcd.execute-api.ap-northeast-2.amazonaws.com/bgffd)
 
 
 
