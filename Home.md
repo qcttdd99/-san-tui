@@ -23,11 +23,11 @@ _全程SSL加密传送_
 
 ### [聚缘阁视频网一](https://estrpm736f.execute-api.us-east-2.amazonaws.com/tv43a)
 
-### [动态网高速入口](https://ggwlui9kx6.execute-api.ap-northeast-2.amazonaws.com/55tz/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口]( https://shnnnc9xij.execute-api.ap-northeast-2.amazonaws.com/nhbffr/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://ggwlui9kx6.execute-api.ap-northeast-2.amazonaws.com/55tz/?id=5)
+### [新唐人高速入口]( https://shnnnc9xij.execute-api.ap-northeast-2.amazonaws.com/nhbffr/?id=5)
 
-### [大纪元高速入口](https://ggwlui9kx6.execute-api.ap-northeast-2.amazonaws.com/55tz/?id=7)
+### [大纪元高速入口]( https://shnnnc9xij.execute-api.ap-northeast-2.amazonaws.com/nhbffr/?id=7)
 
 ### [聚缘阁代理镜像](https://q9h5rdvfbe.execute-api.ap-northeast-2.amazonaws.com/re5v)
 
