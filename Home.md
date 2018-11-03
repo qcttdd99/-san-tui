@@ -17,7 +17,7 @@ _全程SSL加密传送_
 
 
 ***
-
+### [动态网高速入口](https://c0mcqnl8h7.execute-api.us-east-2.amazonaws.com/2147)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [聚缘阁高速入口]( https://9c89avlaud.execute-api.ap-northeast-2.amazonaws.com/u7979s)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
