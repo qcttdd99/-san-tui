@@ -19,21 +19,13 @@ _全程SSL加密传送_
 ***
 
 
-### [聚缘阁高速入口](https://bh7u5gvhaf.execute-api.ap-northeast-2.amazonaws.com/j8uyy)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口]( https://9c89avlaud.execute-api.ap-northeast-2.amazonaws.com/u7979s)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [聚缘阁视频网一](https://ut5f78g0k3.execute-api.ap-northeast-2.amazonaws.com/1488k)
+### [新唐人网络直播]( https://a4v57m7ibj.execute-api.us-east-2.amazonaws.com/k8hv)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [聚缘阁代理论坛]( https://6a1q28hcca.execute-api.ap-northeast-2.amazonaws.com/r355z)
 
-### [动态网高速入口]( https://shnnnc9xij.execute-api.ap-northeast-2.amazonaws.com/nhbffr/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口]( https://shnnnc9xij.execute-api.ap-northeast-2.amazonaws.com/nhbffr/?id=5)
-
-### [大纪元高速入口]( https://shnnnc9xij.execute-api.ap-northeast-2.amazonaws.com/nhbffr/?id=7)
-
-### [聚缘阁代理镜像](https://q9h5rdvfbe.execute-api.ap-northeast-2.amazonaws.com/re5v)
-
-### [新唐人网络直播](https://p8p18cihcd.execute-api.ap-northeast-2.amazonaws.com/bgffd)
+### [聚缘阁视频网一]( https://36p7hqcqre.execute-api.ap-northeast-2.amazonaws.com/12eaz)
 
 
 
