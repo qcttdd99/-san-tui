@@ -23,6 +23,8 @@ _全程SSL加密传送_
 
 ### [聚缘阁视频网一](https://ut5f78g0k3.execute-api.ap-northeast-2.amazonaws.com/1488k)
 
+### [聚缘阁代理论坛]( https://6a1q28hcca.execute-api.ap-northeast-2.amazonaws.com/r355z)
+
 ### [动态网高速入口]( https://shnnnc9xij.execute-api.ap-northeast-2.amazonaws.com/nhbffr/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [新唐人高速入口]( https://shnnnc9xij.execute-api.ap-northeast-2.amazonaws.com/nhbffr/?id=5)
