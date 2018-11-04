@@ -19,13 +19,13 @@ _全程SSL加密传送_
 ***
 ### [动态网高速入口](https://dg79glucrk.execute-api.us-east-2.amazonaws.com/2547n)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [聚缘阁高速入口]( https://9c89avlaud.execute-api.ap-northeast-2.amazonaws.com/u7979s)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口]( https://cqx6mk1j4g.execute-api.us-east-2.amazonaws.com/32541m)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [新唐人网络直播]( https://a4v57m7ibj.execute-api.us-east-2.amazonaws.com/k8hv)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人网络直播]( https://4qgqnmg2jf.execute-api.us-east-2.amazonaws.com/ut7654)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
 
 
-### [聚缘阁视频网一]( https://36p7hqcqre.execute-api.ap-northeast-2.amazonaws.com/12eaz)
+### [聚缘阁视频网一](https://ec2fqbgm3i.execute-api.us-east-2.amazonaws.com/521nhhv)
 
 
 
