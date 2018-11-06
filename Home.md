@@ -17,9 +17,9 @@ _全程SSL加密传送_
 
 
 ***
-### [动态网高速入口]( http://337tyi.bf7s3.mf9o6.ga/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口]( http://388io.bf7s3.mf9o6.ga/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口]( http://3khgyi.bf7s3.mf9o6.ga/5)
+### [新唐人高速入口]( http://3kh909.bf7s3.mf9o6.ga/5)
 
 ### [聚缘阁高速入口]( https://o77a3h1gx3.execute-api.us-east-2.amazonaws.com/jgtt5)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
