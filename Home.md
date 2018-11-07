@@ -17,19 +17,17 @@ _全程SSL加密传送_
 
 
 ***
-### [动态网高速入口](  https://962ry58n1c.execute-api.us-east-2.amazonaws.com/2547m/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口]( https://ji1z7xi56k.execute-api.us-east-2.amazonaws.com/8520/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://962ry58n1c.execute-api.us-east-2.amazonaws.com/2547m/?id=5)
+### [新唐人高速入口]( https://ji1z7xi56k.execute-api.us-east-2.amazonaws.com/8520/?id=5)
 
-### [聚缘阁高速入口](https://03ibbh7246.execute-api.us-east-2.amazonaws.com/8547jj)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [大纪元高速入口](https://ji1z7xi56k.execute-api.us-east-2.amazonaws.com/8520/?id=7)
 
-### [新唐人网络直播]( https://mfrk28vo85.execute-api.us-east-2.amazonaws.com/xxee4)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [退党网高速入口](https://ji1z7xi56k.execute-api.us-east-2.amazonaws.com/8520/?id=8)
 
+### [聚缘阁高速入口](https://dgcnbyjurb.execute-api.us-east-2.amazonaws.com/2547j)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-
-
-
-
+### [新唐人网络直播]( https://2c6v4vq1f9.execute-api.us-east-2.amazonaws.com/xxxee3)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
 
 ***
