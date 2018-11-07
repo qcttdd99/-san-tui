@@ -17,6 +17,10 @@ _全程SSL加密传送_
 
 
 ***
+
+### [新唐人网络直播]( https://1wcosp6hi8.execute-api.ap-southeast-1.amazonaws.com/x33hy)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
+
 ### [动态网高速入口]( https://ji1z7xi56k.execute-api.us-east-2.amazonaws.com/8520/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [新唐人高速入口]( https://ji1z7xi56k.execute-api.us-east-2.amazonaws.com/8520/?id=5)
@@ -27,7 +31,6 @@ _全程SSL加密传送_
 
 ### [聚缘阁高速入口](https://bx2zg7cka1.execute-api.ap-southeast-1.amazonaws.com/vvfheure2)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [新唐人网络直播]( https://1wcosp6hi8.execute-api.ap-southeast-1.amazonaws.com/x33hy)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
 ***
 
