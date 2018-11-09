@@ -22,7 +22,7 @@ _全程SSL加密传送_
 
 ### [动态网入口二](https://x.co/ddg)
 
-### [动态网入口三](https://08bipysfn2.execute-api.ap-southeast-1.amazonaws.com/443nul)
+### [动态网入口三]( https://0wk970ds1f.execute-api.ap-southeast-1.amazonaws.com/000247/?id=2)
 
 
 
