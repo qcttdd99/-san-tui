@@ -15,7 +15,7 @@ _全程SSL加密传送_
 
 ### https://git.io/jygapk
 
-### [新唐人网络直播](https://fdgkizir9g.execute-api.us-east-2.amazonaws.com/54774)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人网络直播]( https://4muiuhal78.execute-api.ap-northeast-1.amazonaws.com/4627892c)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
 ### [动态网高速入口]( https://sdlnt4mbj6.execute-api.us-east-2.amazonaws.com/5737627899/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
@@ -25,7 +25,7 @@ _全程SSL加密传送_
 
 ### [退党网高速入口](https://sdlnt4mbj6.execute-api.us-east-2.amazonaws.com/5737627899/?id=8)
 
-### [聚缘阁高速入口](https://bx2zg7cka1.execute-api.ap-southeast-1.amazonaws.com/vvfheure2)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口]( https://epxv9d2jf5.execute-api.ap-northeast-1.amazonaws.com/4362777b)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 ***
