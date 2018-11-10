@@ -25,9 +25,9 @@ _全程SSL加密传送_
 
 ### [退党网高速入口](https://97k0kclgva.execute-api.us-east-2.amazonaws.com/21477/?id=8)
 
-### [聚缘阁高速入口]( https://jolcsiijw0.execute-api.ap-northeast-1.amazonaws.com/ywujturt)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://54z8bcpa18.execute-api.ap-northeast-1.amazonaws.com/ju9865544)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [聚缘阁视频网](https://jiybax2m6e.execute-api.ap-northeast-1.amazonaws.com/qty4774)
+### [聚缘阁视频网](https://3apz3mkzu8.execute-api.ap-northeast-1.amazonaws.com/2oyu64557ed)
 
 
 ***
