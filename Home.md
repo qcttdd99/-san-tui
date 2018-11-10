@@ -27,6 +27,8 @@ _全程SSL加密传送_
 
 ### [聚缘阁高速入口](https://je0d3fyts2.execute-api.ap-northeast-1.amazonaws.com/3456227)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
+### [聚缘阁视频网](https://jiybax2m6e.execute-api.ap-northeast-1.amazonaws.com/qty4774)
+
 
 ***
 
