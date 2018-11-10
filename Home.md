@@ -15,17 +15,17 @@ _全程SSL加密传送_
 
 ### https://git.io/jygapk
 
-### [新唐人网络直播]( https://xt453.dssa.gq/)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人网络直播]( https://90kapx8n8d.execute-api.us-east-2.amazonaws.com/o9987y)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [动态网高速入口]( https://trae.214g.gq/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口]( https://0gems45py5.execute-api.us-east-2.amazonaws.com/665578/2148n/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://trae.214g.gq/?id=5)
+### [新唐人高速入口](https://0gems45py5.execute-api.us-east-2.amazonaws.com/665578/2148n/?id=5)
 
-### [大纪元高速入口](https://trae.214g.gq/?id=7)
+### [大纪元高速入口](https://0gems45py5.execute-api.us-east-2.amazonaws.com/665578/2148n/?id=7)
 
-### [退党网高速入口](https://trae.214g.gq/?id=8)
+### [退党网高速入口](https://0gems45py5.execute-api.us-east-2.amazonaws.com/665578/2148n/?id=8)
 
-### [聚缘阁高速入口](https://je0d3fyts2.execute-api.ap-northeast-1.amazonaws.com/3456227)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口]( https://jolcsiijw0.execute-api.ap-northeast-1.amazonaws.com/ywujturt)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [聚缘阁视频网](https://jiybax2m6e.execute-api.ap-northeast-1.amazonaws.com/qty4774)
 
