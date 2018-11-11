@@ -15,7 +15,7 @@ _全程SSL加密传送_
 
 ### https://git.io/jygapk
 
-### [新唐人网络直播]( https://90kapx8n8d.execute-api.us-east-2.amazonaws.com/o9987y)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人网络直播](https://vrrlsx0elf.execute-api.us-east-2.amazonaws.com/26954785v)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
 ### [动态网高速入口]( https://xmnguaevy9.execute-api.us-east-2.amazonaws.com/251499878/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
