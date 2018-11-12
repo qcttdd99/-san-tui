@@ -9,13 +9,13 @@
 
 _全程SSL加密传送_
 
-### [动态网高速入口](  https://q5u3h735bj.execute-api.ap-northeast-2.amazonaws.com/225mi8887/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口]( https://7rc89x6yeh.execute-api.us-east-2.amazonaws.com/5478nhgy/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口]( https://q5u3h735bj.execute-api.ap-northeast-2.amazonaws.com/225mi8887/?id=5)
+### [新唐人高速入口]( https://7rc89x6yeh.execute-api.us-east-2.amazonaws.com/5478nhgy/?id=5)
 
-### [大纪元高速入口](https://q5u3h735bj.execute-api.ap-northeast-2.amazonaws.com/225mi8887/?id=7)
+### [大纪元高速入口]( https://7rc89x6yeh.execute-api.us-east-2.amazonaws.com/5478nhgy/?id=7)
 
-### [退党网高速入口](https://q5u3h735bj.execute-api.ap-northeast-2.amazonaws.com/225mi8887/?id=8)
+### [退党网高速入口]( https://7rc89x6yeh.execute-api.us-east-2.amazonaws.com/5478nhgy/?id=8)
 
 ##  聚缘阁代理安卓版
 
