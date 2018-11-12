@@ -48,7 +48,7 @@ _全程SSL加密传送_
 
 请逐一点击
 
-### **[入口一]( https://5eckwufpjd.execute-api.ap-southeast-1.amazonaws.com/6588mkhyf)** **[入口二](https://bvs8oxvzud.execute-api.ap-southeast-1.amazonaws.com/csg432)**
+
 
 ### **[入口三](https://s3-ap-southeast-1.amazonaws.com/jyg4/jyg.html)**  **[入口四](https://s3-ap-northeast-1.amazonaws.com/jyg9/jyg.html)**
 
