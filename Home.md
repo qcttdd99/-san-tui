@@ -9,6 +9,13 @@
 
 _全程SSL加密传送_
 
+### [动态网高速入口]( https://qncw6mqna3.execute-api.us-east-2.amazonaws.com/4367tr74/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+
+### [新唐人高速入口](https://qncw6mqna3.execute-api.us-east-2.amazonaws.com/4367tr74/?id=5)
+
+### [大纪元高速入口](https://qncw6mqna3.execute-api.us-east-2.amazonaws.com/4367tr74/?id=7)
+
+### [退党网高速入口](https://qncw6mqna3.execute-api.us-east-2.amazonaws.com/4367tr74/?id=8)
 
 
 ##  聚缘阁代理安卓版
