@@ -9,10 +9,9 @@
 
 _全程SSL加密传送_
 
-### [新唐人网络直播]( https://76uhqpv44d.execute-api.us-east-2.amazonaws.com/25169m7)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人网络直播]( https://noj3hr162a.execute-api.us-east-2.amazonaws.com/dqtwqtg)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [动态网高速入口](https://kjh02l6lke.execute-api.ap-northeast-2.amazonaws.com/453yy43)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
-
+### [动态网高速入口](https://ipv4nr1vl8.execute-api.us-east-2.amazonaws.com/3665888b)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 ##  聚缘阁代理安卓版
