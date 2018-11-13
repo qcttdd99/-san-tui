@@ -13,7 +13,6 @@ _全程SSL加密传送_
 
 ### [动态网高速入口](https://rdhszyv8n2.execute-api.us-east-2.amazonaws.com/5478)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [动态网高速入口](https://jf34azukdc.execute-api.us-east-2.amazonaws.com/juuu86)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 ##  聚缘阁代理安卓版
