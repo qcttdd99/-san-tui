@@ -17,6 +17,14 @@ _全程SSL加密传送_
 
 ### [聚缘阁高速入口](https://2ir1xyn0nd.execute-api.us-east-2.amazonaws.com/4582475ju73)
 
+### [明慧网高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=3)
+
+### [新唐人高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=5)
+
+### [大纪元高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=7)
+
+### [退党网高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=8)
+
 
 ##  聚缘阁代理安卓版
 
