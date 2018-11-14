@@ -9,7 +9,7 @@
 
 _全程SSL加密传送_
 
-### [聚缘阁高速入口](https://2ir1xyn0nd.execute-api.us-east-2.amazonaws.com/4582475ju73)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口]( https://qi77rpnuz5.execute-api.us-east-2.amazonaws.com/ere43535)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [新唐人网络直播](https://popjnh4ldd.execute-api.ap-northeast-1.amazonaws.com/erwrwtyu5)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
