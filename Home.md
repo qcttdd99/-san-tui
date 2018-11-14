@@ -26,12 +26,6 @@ _全程SSL加密传送_
 ### [退党网高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=8)
 
 
-##  聚缘阁代理安卓版
-
-### https://git.io/jygapk
-
-
-
 ***
 
 ### [动态网入口二](https://x.co/ddg)
