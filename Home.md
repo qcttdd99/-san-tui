@@ -9,9 +9,9 @@
 
 _全程SSL加密传送_
 
-### [新唐人网络直播]( https://github.com/yuange99/4/wiki/a1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人网络直播](https://8yg91ykrtg.execute-api.ap-northeast-1.amazonaws.com/693247de)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [动态网高速入口]( https://github.com/yuange99/4/wiki/a1)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://blpvb1uxyh.execute-api.ap-northeast-1.amazonaws.com/ere5363677)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 ##  聚缘阁代理安卓版
