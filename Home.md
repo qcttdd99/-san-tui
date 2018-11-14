@@ -11,7 +11,7 @@ _全程SSL加密传送_
 
 ### [新唐人网络直播](  https://owthpu7dua.execute-api.us-east-2.amazonaws.com/254799l)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [动态网高速入口]( https://6rn6zouj9e.execute-api.ap-northeast-2.amazonaws.com/657lo087xzrt4)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口]( https://2xv3kytn94.execute-api.ap-northeast-2.amazonaws.com/75898-ky)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 ##  聚缘阁代理安卓版
