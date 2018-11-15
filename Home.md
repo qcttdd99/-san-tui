@@ -9,6 +9,10 @@
 
 _全程SSL加密传送_
 
+### [聚缘阁高速入口]( https://7by0hds1q3.execute-api.ap-northeast-2.amazonaws.com/erwr352)
+
+### [新唐人网络直播](https://9u1hi5vkx6.execute-api.ap-northeast-2.amazonaws.com/erwt352yt)
+
 ### [动态网高速入口](https://7rz7g3g43f.execute-api.ap-northeast-2.amazonaws.com/fff65646/?id=2)
 
 ### [新唐人高速入口](https://7rz7g3g43f.execute-api.ap-northeast-2.amazonaws.com/fff65646/?id=5)
