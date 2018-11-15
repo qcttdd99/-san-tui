@@ -9,23 +9,11 @@
 
 _全程SSL加密传送_
 
-### [聚缘阁高速入口]( https://qi77rpnuz5.execute-api.us-east-2.amazonaws.com/ere43535)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [新唐人网络直播](https://popjnh4ldd.execute-api.ap-northeast-1.amazonaws.com/erwrwtyu5)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [聚缘阁视频网一]( https://ffs074obq9.execute-api.us-east-2.amazonaws.com/trtey43646)
 
-### [动态网高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
 ### [动态网高速入口](https://x.co/hao369tv)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
-
-### [明慧网高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=3)
-
-### [新唐人高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=5)
-
-### [大纪元高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=7)
-
-### [退党网高速入口](https://rtyfcxozm8.execute-api.us-east-2.amazonaws.com/tetey4677/?id=8)
 
 
 ***
