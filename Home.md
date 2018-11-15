@@ -9,17 +9,13 @@
 
 _全程SSL加密传送_
 
-### [聚缘阁高速入口](https://bgwwjl7vha.execute-api.us-east-2.amazonaws.com/erw53566)
+## [动态网高速入口](https://7rz7g3g43f.execute-api.ap-northeast-2.amazonaws.com/fff65646/?id=2)
 
-### [新唐人网络直播](https://1cjihazh4f.execute-api.us-east-2.amazonaws.com/re5366)
+### [新唐人高速入口](https://7rz7g3g43f.execute-api.ap-northeast-2.amazonaws.com/fff65646/?id=5)
 
-### [动态网高速入口](https://lblfmngcl1.execute-api.us-east-2.amazonaws.com/ewt2525y/?id=2)
+## [大纪元高速入口](https://7rz7g3g43f.execute-api.ap-northeast-2.amazonaws.com/fff65646/?id=7)
 
-### [新唐人高速入口](https://lblfmngcl1.execute-api.us-east-2.amazonaws.com/ewt2525y/?id=5)
-
-### [大纪元高速入口](https://lblfmngcl1.execute-api.us-east-2.amazonaws.com/ewt2525y/?id=7)
-
-### [明慧网高速入口](https://lblfmngcl1.execute-api.us-east-2.amazonaws.com/ewt2525y/?id=3)
+### [明慧网高速入口](https://7rz7g3g43f.execute-api.ap-northeast-2.amazonaws.com/fff65646/?id=3)
 
 ### [动态网高速入口](https://x.co/98857478)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
