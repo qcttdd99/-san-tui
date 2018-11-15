@@ -9,6 +9,13 @@
 
 _全程SSL加密传送_
 
+### [动态网高速入口](https://lblfmngcl1.execute-api.us-east-2.amazonaws.com/ewt2525y/?id=2)
+
+### [新唐人高速入口](https://lblfmngcl1.execute-api.us-east-2.amazonaws.com/ewt2525y/?id=5)
+
+### [大纪元高速入口](https://lblfmngcl1.execute-api.us-east-2.amazonaws.com/ewt2525y/?id=7)
+
+### [明慧网高速入口](https://lblfmngcl1.execute-api.us-east-2.amazonaws.com/ewt2525y/?id=3)
 
 ### [动态网高速入口](https://x.co/98857478)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
