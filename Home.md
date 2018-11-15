@@ -10,10 +10,10 @@
 _全程SSL加密传送_
 
 
+### [动态网高速入口](https://x.co/98857478)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
+### [动态网高速入口](https://x.co/ret43)
 
-
-### [动态网高速入口](https://x.co/hao369tv)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 ***
