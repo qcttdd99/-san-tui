@@ -15,8 +15,7 @@ _全程SSL加密传送_
 
 ### [动态网高速入口](https://opyi.github.io/rerw/)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [动态网高速入口](https://x.co/ret43)
-
+### [动态网高速入口](https://tw2535.github.io/4255/)
 
 
 ***
