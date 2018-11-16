@@ -20,9 +20,12 @@ _全程SSL加密传送_
 
 ***
 
-### [动态网入口二](https://x.co/ddg)
+### [动态网高速入口](https://gf7na4n4u2.execute-api.ap-northeast-1.amazonaws.com/3426tw3/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [动态网入口三]( https://x.co/ddf)
+### [新唐人高速入口](https://gf7na4n4u2.execute-api.ap-northeast-1.amazonaws.com/3426tw3/?id=5)
+
+
+### [大纪元高速入口](https://gf7na4n4u2.execute-api.ap-northeast-1.amazonaws.com/3426tw3/?id=7)
 
 
 
