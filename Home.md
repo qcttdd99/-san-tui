@@ -15,15 +15,19 @@ _全程SSL加密传送_
 
 ***
 
-### [动态网高速入口](http://ehtmaf17ye75o.mfm.mat-d999.com/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://el8t6p7t9j.execute-api.ap-northeast-2.amazonaws.com/12wwe900a/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [聚缘阁高速入口]( https://idme7a2mqe.execute-api.ap-northeast-2.amazonaws.com/er3t2ty)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [新唐人网络直播](http://6689463.jtz3.todovision.info/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [新唐人高速入口](http://ehtm55af17ye75o.mfm.mat-d999.com/?id=5)
+### [新唐人高速入口](https://el8t6p7t9j.execute-api.ap-northeast-2.amazonaws.com/12wwe900a/?id=5)
 
-### [大纪元高速入口](http://eht44maf17ye75o.mfm.mat-d999.com/?id=7)
+### [大纪元高速入口](https://el8t6p7t9j.execute-api.ap-northeast-2.amazonaws.com/12wwe900a/?id=7)
+
+### [明慧高速入口](https://el8t6p7t9j.execute-api.ap-northeast-2.amazonaws.com/12wwe900a/?id=3)
+
+### [法轮大法网入口](https://el8t6p7t9j.execute-api.ap-northeast-2.amazonaws.com/12wwe900a/?id=15)
 
 
 
