@@ -49,7 +49,7 @@ _全程SSL加密传送_
 
 请逐一点击
 
-### **[入口一](https://f5jfy2vrvd.execute-api.ap-northeast-2.amazonaws.com/325267)** **[入口二]( https://ey60eln670.execute-api.ap-northeast-2.amazonaws.com/968852f53)**
+### **[入口一](https://wcia2zdk4f.execute-api.eu-central-1.amazonaws.com/3425623d)** **[入口二](https://fahjt9uzgk.execute-api.ap-northeast-2.amazonaws.com/5847mju)**
 
 
 ### **[入口三](https://s3-ap-southeast-1.amazonaws.com/jyg4/jyg.html)**  **[入口四](https://s3-ap-northeast-1.amazonaws.com/jyg9/jyg.html)**
