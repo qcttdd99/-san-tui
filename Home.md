@@ -21,7 +21,7 @@ _全程SSL加密传送_
 
 ### [新唐人网络直播](http://66433s.jtz3.todovision.info/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [聚缘阁视频网一]( https://mpjzfhknc2.execute-api.ap-northeast-1.amazonaws.com/hdhhv65)
+### [聚缘阁视频网一]( https://x00uji48a4.execute-api.us-east-2.amazonaws.com/5247)
 
 ### [新唐人高速入口](https://4j5o86hxr1.execute-api.us-east-2.amazonaws.com/iu8665r/?id=5)
 
