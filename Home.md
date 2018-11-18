@@ -15,22 +15,21 @@ _全程SSL加密传送_
 
 ***
 
-### [动态网高速入口](https://o8m80yyabg.execute-api.ap-northeast-1.amazonaws.com/rt36367447/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://4j5o86hxr1.execute-api.us-east-2.amazonaws.com/iu8665r/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [聚缘阁高速入口](http://66433e.jtz3.todovision.info)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](http://66433s.jtz3.todovision.info)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [新唐人网络直播](http://66433e.jtz3.todovision.info/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人网络直播](http://66433s.jtz3.todovision.info/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
 ### [聚缘阁视频网一]( https://mpjzfhknc2.execute-api.ap-northeast-1.amazonaws.com/hdhhv65)
 
-### [新唐人高速入口](https://o8m80yyabg.execute-api.ap-northeast-1.amazonaws.com/rt36367447/?id=5)
+### [新唐人高速入口](https://4j5o86hxr1.execute-api.us-east-2.amazonaws.com/iu8665r/?id=5)
 
-### [大纪元高速入口](https://o8m80yyabg.execute-api.ap-northeast-1.amazonaws.com/rt36367447/?id=7)
+### [大纪元高速入口](https://4j5o86hxr1.execute-api.us-east-2.amazonaws.com/iu8665r/?id=7)
 
-### [法轮大法网入口](https://o8m80yyabg.execute-api.ap-northeast-1.amazonaws.com/rt36367447/?id=15)
+### [法轮大法网入口](https://4j5o86hxr1.execute-api.us-east-2.amazonaws.com/iu8665r/?id=15)
 
-### [退党网高速入口](https://o8m80yyabg.execute-api.ap-northeast-1.amazonaws.com/rt36367447/?id=8)
-
+### [退党网高速入口](https://4j5o86hxr1.execute-api.us-east-2.amazonaws.com/iu8665r/?id=8)
 
 
 ***
