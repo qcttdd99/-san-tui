@@ -27,16 +27,15 @@
 
 ### [新唐人网络直播]( http://4356a.jtz3.todovision.info/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [动态网高速入口](https://9ajfhoue9k.execute-api.ap-northeast-1.amazonaws.com/m9u7yt5/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://j5ly5qkde1.execute-api.ap-northeast-1.amazonaws.com/kmju8994/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://9ajfhoue9k.execute-api.ap-northeast-1.amazonaws.com/m9u7yt5/?id=5)
+### [新唐人高速入口](https://j5ly5qkde1.execute-api.ap-northeast-1.amazonaws.com/kmju8994/?id=5)
 
-### [大纪元高速入口](https://9ajfhoue9k.execute-api.ap-northeast-1.amazonaws.com/m9u7yt5/?id=7)
+### [大纪元高速入口](https://j5ly5qkde1.execute-api.ap-northeast-1.amazonaws.com/kmju8994/?id=7)
 
-### [法轮大法网入口](https://9ajfhoue9k.execute-api.ap-northeast-1.amazonaws.com/m9u7yt5/?id=15)
+### [法轮大法网入口](https://j5ly5qkde1.execute-api.ap-northeast-1.amazonaws.com/kmju8994/?id=15)
 
-### [退党网高速入口](https://9ajfhoue9k.execute-api.ap-northeast-1.amazonaws.com/m9u7yt5/?id=8)
-
+### [退党网高速入口](https://j5ly5qkde1.execute-api.ap-northeast-1.amazonaws.com/kmju8994/?id=8)
 
 ***
 
