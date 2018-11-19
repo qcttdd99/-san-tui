@@ -25,7 +25,7 @@
 
 ### [动态网高速入口](https://hwok24p0y4.execute-api.ap-southeast-1.amazonaws.com/1115mj/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://hwok24p0y4.execute-api.ap-southeast-1.amazonaws.com/1115mj/?id=5)
+### [新唐人高速入口](https://abk97d6x04.execute-api.ap-southeast-1.amazonaws.com/4rrww36643678/?id=5)
 
 ### [大纪元高速入口](https://hwok24p0y4.execute-api.ap-southeast-1.amazonaws.com/1115mj/?id=7)
 
