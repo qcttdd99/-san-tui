@@ -23,15 +23,15 @@
 
 ***
 
-### [动态网高速入口](https://9cci242gwh.execute-api.us-east-2.amazonaws.com/y5575ur/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://4tsdo7vly0.execute-api.ap-northeast-2.amazonaws.com/25487dew/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://9cci242gwh.execute-api.us-east-2.amazonaws.com/y5575ur/?id=5)
+### [新唐人高速入口](https://4tsdo7vly0.execute-api.ap-northeast-2.amazonaws.com/25487dew/?id=5)
 
-### [大纪元高速入口](https://9cci242gwh.execute-api.us-east-2.amazonaws.com/y5575ur/?id=7)
+### [大纪元高速入口](https://4tsdo7vly0.execute-api.ap-northeast-2.amazonaws.com/25487dew/?id=7)
 
-### [法轮大法网入口](https://9cci242gwh.execute-api.us-east-2.amazonaws.com/y5575ur/?id=15)
+### [法轮大法网入口](https://4tsdo7vly0.execute-api.ap-northeast-2.amazonaws.com/25487dew/?id=15)
 
-### [退党网高速入口](https://9cci242gwh.execute-api.us-east-2.amazonaws.com/y5575ur/?id=8)
+### [退党网高速入口](https://4tsdo7vly0.execute-api.ap-northeast-2.amazonaws.com/25487dew/?id=8)
 
 ***
 
