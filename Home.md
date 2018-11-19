@@ -23,15 +23,16 @@
 
 ***
 
-### [动态网高速入口](https://hwok24p0y4.execute-api.ap-southeast-1.amazonaws.com/1115mj/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://63254.b75422.bangundesaku.com/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://abk97d6x04.execute-api.ap-southeast-1.amazonaws.com/4rrww36643678/?id=5)
+### [新唐人高速入口](http://63254a.b75422.bangundesaku.com/?id=5)
 
-### [大纪元高速入口](https://hwok24p0y4.execute-api.ap-southeast-1.amazonaws.com/1115mj/?id=7)
+### [大纪元高速入口](http://63254a.b75422.bangundesaku.com/?id=7)
 
-### [法轮大法网入口](https://hwok24p0y4.execute-api.ap-southeast-1.amazonaws.com/1115mj/?id=15)
+### [法轮大法网入口](http://63254a.b75422.bangundesaku.com/?id=15)
 
-### [退党网高速入口](https://hwok24p0y4.execute-api.ap-southeast-1.amazonaws.com/1115mj/?id=8)
+### [退党网高速入口](http://63254a.b75422.bangundesaku.com/?id=8)
+
 
 ***
 
