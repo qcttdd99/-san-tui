@@ -23,9 +23,9 @@
 
 ***
 
-### [聚缘阁高速入口](http://43vx2.jtz3.todovision.info)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](http://4vc3z.jtz3.todovision.info)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [新唐人网络直播]( http://43vx2.jtz3.todovision.info/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人网络直播]( http://4vc3z.jtz3.todovision.info/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
 ### [动态网高速入口](https://j5ly5qkde1.execute-api.ap-northeast-1.amazonaws.com/kmju8994/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
