@@ -23,9 +23,7 @@
 
 ***
 
-### [聚缘阁高速入口](http://asdf1.a22e.khyg.cf)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
-
-### [新唐人网络直播]( http://asdf1.a22e.khyg.cf/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [聚缘阁高速入口](https://x.co/98857478)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [动态网高速入口](https://x.co/123s)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
