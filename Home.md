@@ -23,13 +23,14 @@
 
 ***
 
-### [聚缘阁高速入口](http://4vc3z.a22e.khyg.cf)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](http://444z.a22e.khyg.cf)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [新唐人网络直播]( http://4vc3z.a22e.khyg.cf/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人网络直播]( http://4v663z.a22e.khyg.cf/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [动态网高速入口](https://9fit0si66d.execute-api.ap-northeast-1.amazonaws.com/5478mjuhg)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://dwz.mn/99ope)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://9fit0si66d.execute-api.ap-northeast-1.amazonaws.com/5478mjuhg)
+### [新唐人高速入口](https://dwz.mn/123s)
+
 
 
 
