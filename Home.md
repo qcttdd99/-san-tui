@@ -27,9 +27,9 @@
 
 ### [新唐人网络直播]( http://asdf1.a22e.khyg.cf/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [动态网高速入口](https://dwz.mn/99ope)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://x.co/123s)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://dwz.mn/123s)
+### [新唐人高速入口](https://x.co/hao369tv)
 
 
 
