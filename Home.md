@@ -25,13 +25,11 @@
 
 ### [聚缘阁高速入口](https://zspbfkadrk.execute-api.eu-west-1.amazonaws.com/254879633254)
 
-### [动态网高速入口](https://zs1qll7u9h.execute-api.eu-west-1.amazonaws.com/6547778799654/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://zsecnnabi7.execute-api.eu-west-1.amazonaws.com/3258479966/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://zs1qll7u9h.execute-api.eu-west-1.amazonaws.com/6547778799654/?id=5)
+### [新唐人高速入口](https://zsecnnabi7.execute-api.eu-west-1.amazonaws.com/3258479966/?id=5)
 
-### [大纪元高速入口](https://zs1qll7u9h.execute-api.eu-west-1.amazonaws.com/6547778799654/?id=7)
-
-### [退党网高速入口](https://zs1qll7u9h.execute-api.eu-west-1.amazonaws.com/6547778799654/?id=8)
+### [大纪元高速入口](https://zsecnnabi7.execute-api.eu-west-1.amazonaws.com/3258479966/?id=7)
 
 
 
