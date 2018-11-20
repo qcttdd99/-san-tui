@@ -23,15 +23,15 @@
 
 ***
 
-### [聚缘阁高速入口](https://zspbfkadrk.execute-api.eu-west-1.amazonaws.com/254879633254)
+### [聚缘阁高速入口](http://7o43456.fyte.flyingbluetooth.com)
 
-### [新唐人网络直播](http://7oreet.fyte.flyingbluetooth.com/t-1-1)
+### [新唐人网络直播](http://7o45355.fyte.flyingbluetooth.com/t-1-1)
 
-### [动态网高速入口](http://367899.tow.thxeva.com/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://3623456.tow.thxeva.com/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](http://3667800.tow.thxeva.com/5)
+### [新唐人高速入口](http://33695874.tow.thxeva.com/5)
 
-### [大纪元高速入口](http://3906555.tow.thxeva.com/7)
+### [大纪元高速入口](http://35674335.tow.thxeva.com/7)
 
 
 
