@@ -31,7 +31,7 @@
 
 ### [大纪元高速入口](https://zs1qll7u9h.execute-api.eu-west-1.amazonaws.com/6547778799654/?id=7)
 
-### [退党网速入口](https://zs1qll7u9h.execute-api.eu-west-1.amazonaws.com/6547778799654/?id=8)
+### [退党网高速入口](https://zs1qll7u9h.execute-api.eu-west-1.amazonaws.com/6547778799654/?id=8)
 
 
 
