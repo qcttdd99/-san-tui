@@ -23,6 +23,10 @@
 
 ***
 
+### [动态网高速入口](https://zs1qll7u9h.execute-api.eu-west-1.amazonaws.com/6547778799654/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+
+### [新唐人高速入口](https://zs1qll7u9h.execute-api.eu-west-1.amazonaws.com/6547778799654/?id=5)
+
 ### [聚缘阁高速入口](https://x.co/98857478)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [动态网高速入口](https://x.co/123s)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
