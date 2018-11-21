@@ -27,6 +27,8 @@
 
 ### [动态网高速入口](http://x.co/123s)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人网络直播](https://x.co/hao369tv)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
 
 
 
