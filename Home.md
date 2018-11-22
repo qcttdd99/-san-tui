@@ -27,6 +27,18 @@
 
 ### [动态网高速入口](http://x.co/123s)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [动态网高速入口](https://jkmwp6330d.execute-api.ap-northeast-1.amazonaws.com/254787899nh/?id=2)
+
+### [新唐人高速入口](https://jkmwp6330d.execute-api.ap-northeast-1.amazonaws.com/254787899nh/?id=5)
+
+### [大纪元高速入口](https://jkmwp6330d.execute-api.ap-northeast-1.amazonaws.com/254787899nh/?id=7)
+
+### [退党网高速入口](https://jkmwp6330d.execute-api.ap-northeast-1.amazonaws.com/254787899nh/?id=8)
+
+### [法轮大法网入口](https://jkmwp6330d.execute-api.ap-northeast-1.amazonaws.com/254787899nh/?id=15)
+
+### [明慧网高速入口](https://jkmwp6330d.execute-api.ap-northeast-1.amazonaws.com/254787899nh/?id=3)
+
 
 
 
