@@ -27,16 +27,6 @@
 
 ### [动态网高速入口](http://x.co/123s)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人网络直播](https://x.co/hao369tv)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
-
-
-### [新唐人高速入口](https://dspzywxlqc.execute-api.ap-northeast-2.amazonaws.com/369as/?id=5)
-
-### [大纪元高速入口](https://dspzywxlqc.execute-api.ap-northeast-2.amazonaws.com/369as/?id=7)
-
-### [退党网高速入口](https://dspzywxlqc.execute-api.ap-northeast-2.amazonaws.com/369as/?id=8)
-
-### [法轮大法网入口](https://dspzywxlqc.execute-api.ap-northeast-2.amazonaws.com/369as/?id=15)
 
 
 
