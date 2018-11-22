@@ -25,6 +25,8 @@
 
 ### [聚缘阁高速入口](http://x.co/98857478)
 
+### [新唐人网络直播](http://25445248.jytz3.jshowe.com.au/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
 ### [动态网高速入口](http://x.co/123s)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [动态网高速入口](https://jkmwp6330d.execute-api.ap-northeast-1.amazonaws.com/254787899nh/?id=2)
