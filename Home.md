@@ -22,6 +22,7 @@
 
 
 ***
+### [聚缘阁高速入口](https://7hdecsxvk5.execute-api.ap-northeast-2.amazonaws.com/getwty)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 
