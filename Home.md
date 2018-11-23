@@ -23,10 +23,6 @@
 
 ***
 
-### [聚缘阁高速入口](http://x.co/98857478)
-
-
-### [动态网高速入口](http://x.co/123s)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
@@ -51,19 +47,32 @@
 
 请逐一点击
 
-### **[入口一](https://wcia2zdk4f.execute-api.eu-central-1.amazonaws.com/3425623d)** **[入口二](https://fahjt9uzgk.execute-api.ap-northeast-2.amazonaws.com/5847mju)**
+## 亚马逊镜像入口 
+
+请逐一点击,你一定会成功破网
+
+### **[入口一](https://s3-ap-southeast-2.amazonaws.com/jyg1/jyg.html)** **[入口二]( https://s3.eu-west-2.amazonaws.com/jyg2/jyg.html)**
 
 
-### **[入口三](https://s3-ap-southeast-1.amazonaws.com/jyg4/jyg.html)**  **[入口四](https://s3-ap-northeast-1.amazonaws.com/jyg9/jyg.html)**
+### **[入口三](https://s3.eu-central-1.amazonaws.com/jyg3/jyg.html)**  **[入口四](https://s3-ap-southeast-1.amazonaws.com/jyg4/jyg.html)**
 
-### **[入口五](https://s3.ap-south-1.amazonaws.com/jyg5/jyg.html)**  **[入口六](https://s3-us-west-2.amazonaws.com/jyg7/jyg.html)**
-
-
-###  **[入口七](https://s3-us-west-1.amazonaws.com/jyg6/jyg.html)**  **[入口八](https://s3-eu-west-1.amazonaws.com/jyg8/jyg.html)**
+### **[入口五](https://s3.ap-south-1.amazonaws.com/jyg5/jyg.html)**  **[入口六](https://s3-us-west-1.amazonaws.com/jyg6/jyg.html)**
 
 
-###  **[入口九](https://s3.eu-central-1.amazonaws.com/jyg3/jyg.html)**  **[入口十](https://s3-ap-southeast-2.amazonaws.com/jyg1/jyg.html)**
+###  **[入口七](https://s3-us-west-2.amazonaws.com/jyg7/jyg.html)**  **[入口八](https://s3-eu-west-1.amazonaws.com/jyg8/jyg.html)**
 
+
+###  **[入口九](https://s3-ap-northeast-1.amazonaws.com/jyg9/jyg.html)**  **[入口十](https://s3.amazonaws.com/dtw/jyg.html)**
+
+
+
+## 临时网址入口 
+
+网址有效期为几小时，全程加密
+
+### [动态网入口二](https://x.co/ddg)
+
+### [动态网入口三](https://x.co/ddf)
 
 
 
