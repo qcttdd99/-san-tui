@@ -22,9 +22,9 @@
 
 
 ***
+### [新唐人网络直播]( http://5857478.jytz3.jshowe.com.au/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
 ### [聚缘阁高速入口](https://7hdecsxvk5.execute-api.ap-northeast-2.amazonaws.com/getwty)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
-
-
 
 ### [动态网高速入口](https://twljb9uuxh.execute-api.ap-south-1.amazonaws.com/5235bb4356/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
