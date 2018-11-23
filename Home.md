@@ -25,7 +25,13 @@
 
 
 
+### [动态网高速入口](https://twljb9uuxh.execute-api.ap-south-1.amazonaws.com/5235bb4356/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人高速入口](https://twljb9uuxh.execute-api.ap-south-1.amazonaws.com/5235bb4356/?id=5)
+
+### [大纪元高速入口](https://twljb9uuxh.execute-api.ap-south-1.amazonaws.com/5235bb4356/?id=7)
+
+### [退党网高速入口](https://twljb9uuxh.execute-api.ap-south-1.amazonaws.com/5235bb4356/?id=8)
 
 
 
