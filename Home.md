@@ -18,10 +18,12 @@
 **迷途往返终未迟，悬崖勒马结善缘。**
 
 
-【公告】这里白天被封网的监控厉害，请抓紧收藏聚缘阁网址及代理网址，以便日后翻墙使用！
+
 
 
 ***
+【公告】这里白天被封网的监控厉害，请抓紧收藏聚缘阁网址及代理网址，以便日后翻墙使用！
+
 ### [新唐人网络直播]( http://5857478.jytz3.jshowe.com.au/t-1-1)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
 ### [聚缘阁高速入口](https://7hdecsxvk5.execute-api.ap-northeast-2.amazonaws.com/getwty)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
