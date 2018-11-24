@@ -22,19 +22,7 @@
 
 
 ***
-【公告】这里白天被封网的监控厉害，请抓紧收藏聚缘阁网址及代理网址，以便日后翻墙使用！
 
-
-### [聚缘阁高速入口](https://7hdecsxvk5.execute-api.ap-northeast-2.amazonaws.com/getwty)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
-
-### [动态网高速入口](  https://muws5wd1b6.execute-api.us-west-1.amazonaws.com/ttw36hyuio7/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
-
-
-### [新唐人高速入口](  https://muws5wd1b6.execute-api.us-west-1.amazonaws.com/ttw36hyuio7/?id=5)
-
-### [大纪元高速入口](  https://muws5wd1b6.execute-api.us-west-1.amazonaws.com/ttw36hyuio7/?id=7)
-
-### [退党网高速入口](  https://muws5wd1b6.execute-api.us-west-1.amazonaws.com/ttw36hyuio7/?id=8)
 
 
 
