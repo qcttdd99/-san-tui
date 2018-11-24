@@ -43,18 +43,16 @@
 ## 聚缘阁翻墙代理 
 
 
-### [聚缘阁高速入口]( https://3ksvw75aof.execute-api.us-west-1.amazonaws.com/5147852263)
 
-### [新唐人网络直播](https://7xcvem6zjh.execute-api.us-west-1.amazonaws.com/rwrwr35)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [动态网高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [动态网高速入口](  https://dyfkvvx541.execute-api.us-west-1.amazonaws.com/453637re/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](  https://dyfkvvx541.execute-api.us-west-1.amazonaws.com/453637re/?id=5)
+### [新唐人高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=5)
 
-### [大纪元高速入口](  https://dyfkvvx541.execute-api.us-west-1.amazonaws.com/453637re/?id=7)
+### [大纪元高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=7)
 
-### [退党网高速入口](  https://dyfkvvx541.execute-api.us-west-1.amazonaws.com/453637re/?id=8)
 
+### [退党网高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=8)
 
 请逐一点击
 
