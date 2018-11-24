@@ -42,6 +42,8 @@
 
 ## 聚缘阁翻墙代理 
 
+### [新唐人网络直播](https://jzlbaru5y5.execute-api.us-east-2.amazonaws.com/2547788l-09)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
 ### [聚缘阁高速入口](https://ygvczou6zc.execute-api.us-east-2.amazonaws.com/254878ju7)
 
 ### [动态网高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
