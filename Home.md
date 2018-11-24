@@ -53,6 +53,7 @@
 
 ### [大纪元高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=7)
 
+### [聚缘阁视频网一]( https://rtly9mkx4d.execute-api.us-east-2.amazonaws.com/21475699-o)
 
 ### [退党网高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=8)
 
