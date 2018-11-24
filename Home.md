@@ -42,7 +42,7 @@
 
 ## 聚缘阁翻墙代理 
 
-
+### [聚缘阁高速入口](https://ygvczou6zc.execute-api.us-east-2.amazonaws.com/254878ju7)
 
 ### [动态网高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
