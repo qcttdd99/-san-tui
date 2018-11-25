@@ -46,16 +46,21 @@
 
 ### [聚缘阁高速入口](https://ygvczou6zc.execute-api.us-east-2.amazonaws.com/254878ju7)
 
-### [动态网高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口]( https://5jo7ip33r1.execute-api.us-west-1.amazonaws.com/de5-uy/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人高速入口]( https://5jo7ip33r1.execute-api.us-west-1.amazonaws.com/de5-uy/?id=5)
 
-### [新唐人高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=5)
+### [大纪元高速入口]( https://5jo7ip33r1.execute-api.us-west-1.amazonaws.com/de5-uy/?id=7)
 
-### [大纪元高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=7)
+### [退党网高速入口]( https://5jo7ip33r1.execute-api.us-west-1.amazonaws.com/de5-uy/?id=8)
+
+### [法轮大法网入口]( https://5jo7ip33r1.execute-api.us-west-1.amazonaws.com/de5-uy/?id=15)
+
+### [明慧网高速入口]( https://5jo7ip33r1.execute-api.us-west-1.amazonaws.com/de5-uy/?id=3)
 
 ### [聚缘阁视频网一]( https://rtly9mkx4d.execute-api.us-east-2.amazonaws.com/21475699-o)
 
-### [退党网高速入口]( https://wv2v5mxxdi.execute-api.us-east-2.amazonaws.com/ko998yh/?id=8)
+
 
 请逐一点击
 
