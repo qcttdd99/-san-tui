@@ -42,7 +42,11 @@
 
 ## 聚缘阁翻墙代理 
 
+### [新唐人网络直播]( https://1yhyitsbxb.execute-api.us-east-2.amazonaws.com/xtr-2)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
+
 ### [聚缘阁高速入口](https://5j7wju9zj1.execute-api.us-east-2.amazonaws.com/21-ppo)
+
 
 ### [动态网高速入口]( https://xm0x5qcz8c.execute-api.us-east-2.amazonaws.com/21477-uc/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
