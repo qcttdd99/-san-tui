@@ -18,7 +18,7 @@
 **迷途往返终未迟，悬崖勒马结善缘。**
 
 ***
-### [新唐人高速入口](https://9l70xvrxl8.execute-api.us-west-2.amazonaws.com/2547-p)
+### [聚缘阁高速入口](https://9l70xvrxl8.execute-api.us-west-2.amazonaws.com/2547-p)
 
 ### [动态网高速入口](https://7ylx4tu1wg.execute-api.us-west-2.amazonaws.com/254788-ere/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
