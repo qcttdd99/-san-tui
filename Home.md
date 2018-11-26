@@ -17,13 +17,19 @@
 
 **迷途往返终未迟，悬崖勒马结善缘。**
 
-
-
-
-
 ***
 
+### [动态网高速入口](https://bamttga6sa.execute-api.ap-northeast-2.amazonaws.com/2154788-re/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人高速入口](https://bamttga6sa.execute-api.ap-northeast-2.amazonaws.com/2154788-re/?id=5)
+
+### [大纪元高速入口](https://bamttga6sa.execute-api.ap-northeast-2.amazonaws.com/2154788-re/?id=7)
+
+### [退党网高速入口](https://bamttga6sa.execute-api.ap-northeast-2.amazonaws.com/2154788-re/?id=8)
+
+### [法轮大法网入口](https://bamttga6sa.execute-api.ap-northeast-2.amazonaws.com/2154788-re/?id=15)
+
+### [明慧网高速入口](https://bamttga6sa.execute-api.ap-northeast-2.amazonaws.com/2154788-re/?id=3)
 
 
 
