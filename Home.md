@@ -36,7 +36,17 @@
 ## 聚缘阁翻墙代理 
 
 
+### [动态网高速入口]( https://vt5wes87xj.execute-api.us-east-2.amazonaws.com/fd-325-w/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人高速入口]( https://vt5wes87xj.execute-api.us-east-2.amazonaws.com/fd-325-w/?id=5)
+
+### [大纪元高速入口]( https://vt5wes87xj.execute-api.us-east-2.amazonaws.com/fd-325-w/?id=7)
+
+### [退党网高速入口]( https://vt5wes87xj.execute-api.us-east-2.amazonaws.com/fd-325-w/?id=8)
+
+### [法轮大法网入口]( https://vt5wes87xj.execute-api.us-east-2.amazonaws.com/fd-325-w/?id=15)
+
+### [明慧网高速入口]( https://vt5wes87xj.execute-api.us-east-2.amazonaws.com/fd-325-w/?id=3)
 
 
 请逐一点击
