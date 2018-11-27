@@ -19,7 +19,17 @@
 
 ***
 
+### [动态网高速入口]( https://jpikkcc6p1.execute-api.us-east-2.amazonaws.com/25147-32/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人高速入口]( https://jpikkcc6p1.execute-api.us-east-2.amazonaws.com/25147-32/?id=5)
+
+### [大纪元高速入口]( https://jpikkcc6p1.execute-api.us-east-2.amazonaws.com/25147-32/?id=7)
+
+### [退党网高速入口]( https://jpikkcc6p1.execute-api.us-east-2.amazonaws.com/25147-32/?id=8)
+
+### [法轮大法网入口]( https://jpikkcc6p1.execute-api.us-east-2.amazonaws.com/25147-32/?id=15)
+
+### [明慧网高速入口]( https://jpikkcc6p1.execute-api.us-east-2.amazonaws.com/25147-32/?id=3)
 
 
 ***
