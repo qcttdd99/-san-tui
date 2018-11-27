@@ -20,17 +20,13 @@
 ***
 ### [聚缘阁高速入口](https://9l70xvrxl8.execute-api.us-west-2.amazonaws.com/2547-p)
 
-### [动态网高速入口](https://7ylx4tu1wg.execute-api.us-west-2.amazonaws.com/254788-ere/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://7ylx4tu1wg.execute-api.us-west-2.amazonaws.com/254788-ere/?id=5)
+### [动态网高速入口](https://2tjcnq82e7.execute-api.ap-northeast-1.amazonaws.com/6588-q)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [大纪元高速入口](https://7ylx4tu1wg.execute-api.us-west-2.amazonaws.com/254788-ere/?id=7)
+### [新唐人高速入口](https://2tjcnq82e7.execute-api.ap-northeast-1.amazonaws.com/6588-q)
 
-### [退党网高速入口](https://7ylx4tu1wg.execute-api.us-west-2.amazonaws.com/254788-ere/?id=8)
+### [大纪元高速入口](https://2tjcnq82e7.execute-api.ap-northeast-1.amazonaws.com/6588-q)
 
-### [法轮大法网入口](https://7ylx4tu1wg.execute-api.us-west-2.amazonaws.com/254788-ere/?id=15)
-
-### [明慧网高速入口](https://7ylx4tu1wg.execute-api.us-west-2.amazonaws.com/254788-ere/?id=3)
 
 
 
