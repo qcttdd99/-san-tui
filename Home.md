@@ -19,6 +19,8 @@
 
 ***
 
+### [新唐人网络直播]( https://yzqb6p5z28.execute-api.us-east-2.amazonaws.com/2547-ju)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
 ### [动态网高速入口]( https://jpikkcc6p1.execute-api.us-east-2.amazonaws.com/25147-32/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [新唐人高速入口]( https://jpikkcc6p1.execute-api.us-east-2.amazonaws.com/25147-32/?id=5)
