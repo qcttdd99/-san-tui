@@ -19,7 +19,17 @@
 
 ***
 
+### [动态网高速入口](https://nn4jb1ktb3.execute-api.ca-central-1.amazonaws.com/125487-kjh/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人高速入口](https://nn4jb1ktb3.execute-api.ca-central-1.amazonaws.com/125487-kjh/?id=5)
+
+### [大纪元高速入口](https://nn4jb1ktb3.execute-api.ca-central-1.amazonaws.com/125487-kjh/?id=7)
+
+### [退党网高速入口](https://nn4jb1ktb3.execute-api.ca-central-1.amazonaws.com/125487-kjh/?id=8)
+
+### [法轮大法网入口](https://nn4jb1ktb3.execute-api.ca-central-1.amazonaws.com/125487-kjh/?id=15)
+
+### [明慧网高速入口](https://nn4jb1ktb3.execute-api.ca-central-1.amazonaws.com/125487-kjh/?id=3)
 
 
 ***
