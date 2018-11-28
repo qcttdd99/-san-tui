@@ -19,6 +19,18 @@
 
 ***
 
+### [动态网高速入口](https://aut1kxz4ml.execute-api.us-east-2.amazonaws.com/214587-g/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+
+### [新唐人高速入口](https://aut1kxz4ml.execute-api.us-east-2.amazonaws.com/214587-g/?id=5)
+
+### [大纪元高速入口](https://aut1kxz4ml.execute-api.us-east-2.amazonaws.com/214587-g/?id=7)
+
+### [退党网高速入口](https://aut1kxz4ml.execute-api.us-east-2.amazonaws.com/214587-g/?id=8)
+
+### [法轮大法网入口](https://aut1kxz4ml.execute-api.us-east-2.amazonaws.com/214587-g/?id=15)
+
+### [明慧网高速入口](https://aut1kxz4ml.execute-api.us-east-2.amazonaws.com/214587-g/?id=3)
+
 
 
 
