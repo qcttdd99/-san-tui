@@ -31,9 +31,20 @@
 
 ## 聚缘阁翻墙代理 
 
+### [动态网高速入口](https://50omwbctre.execute-api.ca-central-1.amazonaws.com/258-ku9/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+
+### [新唐人高速入口](https://50omwbctre.execute-api.ca-central-1.amazonaws.com/258-ku9/?id=5)
+
+### [大纪元高速入口](https://50omwbctre.execute-api.ca-central-1.amazonaws.com/258-ku9/?id=7)
+
+### [退党网高速入口](https://50omwbctre.execute-api.ca-central-1.amazonaws.com/258-ku9/?id=8)
+
+### [法轮大法网入口](https://50omwbctre.execute-api.ca-central-1.amazonaws.com/258-ku9/?id=15)
+
+### [明慧网高速入口](https://50omwbctre.execute-api.ca-central-1.amazonaws.com/258-ku9/?id=3)
 
 
-请逐一点击
+
 
 ## 亚马逊镜像入口 
 
