@@ -18,7 +18,17 @@
 **迷途往返终未迟，悬崖勒马结善缘。**
 
 ***
+### [动态网高速入口](https://a1iiy3e0cl.execute-api.ap-northeast-2.amazonaws.com/2547-ooi-h/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人高速入口](https://a1iiy3e0cl.execute-api.ap-northeast-2.amazonaws.com/2547-ooi-h/?id=5)
+
+### [大纪元高速入口](https://a1iiy3e0cl.execute-api.ap-northeast-2.amazonaws.com/2547-ooi-h/?id=7)
+
+### [退党网高速入口](https://a1iiy3e0cl.execute-api.ap-northeast-2.amazonaws.com/2547-ooi-h/?id=8)
+
+### [法轮大法网入口](https://a1iiy3e0cl.execute-api.ap-northeast-2.amazonaws.com/2547-ooi-h/?id=15)
+
+### [明慧网高速入口](https://a1iiy3e0cl.execute-api.ap-northeast-2.amazonaws.com/2547-ooi-h/?id=3)
 
 
 ##  聚缘阁代理安卓版
