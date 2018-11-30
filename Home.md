@@ -31,20 +31,6 @@
 
 ## 聚缘阁翻墙代理 
 
-### [新唐人网络直播]( https://2gypncsv5f.execute-api.ap-northeast-2.amazonaws.com/25487-87656)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
-
-### [动态网高速入口](https://sc092t1w2g.execute-api.us-east-2.amazonaws.com/1557kji8/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
-
-### [新唐人高速入口](https://sc092t1w2g.execute-api.us-east-2.amazonaws.com/1557kji8/?id=5)
-
-### [大纪元高速入口](https://sc092t1w2g.execute-api.us-east-2.amazonaws.com/1557kji8/?id=7)
-
-### [退党网高速入口](https://sc092t1w2g.execute-api.us-east-2.amazonaws.com/1557kji8/?id=8)
-
-### [法轮大法网入口](https://sc092t1w2g.execute-api.us-east-2.amazonaws.com/1557kji8/?id=15)
-
-### [明慧网高速入口](https://sc092t1w2g.execute-api.us-east-2.amazonaws.com/1557kji8/?id=3)
-
 
 ## 亚马逊镜像入口 
 
