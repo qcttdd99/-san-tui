@@ -20,19 +20,6 @@
 ***
 
 
-### [动态网高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
-
-### [新唐人高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=5)
-
-### [大纪元高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=7)
-
-### [退党网高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=8)
-
-### [法轮大法网入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=15)
-
-### [明慧网高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=3)
-
-
 
 
 ##  聚缘阁代理安卓版
