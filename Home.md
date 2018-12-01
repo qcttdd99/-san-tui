@@ -19,17 +19,19 @@
 
 ***
 
-### [动态网高速入口](https://dgpyfon1a5.execute-api.ap-northeast-2.amazonaws.com/58847-k/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://dgpyfon1a5.execute-api.ap-northeast-2.amazonaws.com/58847-k/?id=5)
+### [动态网高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [大纪元高速入口](https://dgpyfon1a5.execute-api.ap-northeast-2.amazonaws.com/58847-k/?id=7)
+### [新唐人高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=5)
 
-### [退党网高速入口](https://dgpyfon1a5.execute-api.ap-northeast-2.amazonaws.com/58847-k/?id=8)
+### [大纪元高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=7)
 
-### [法轮大法网入口](https://dgpyfon1a5.execute-api.ap-northeast-2.amazonaws.com/58847-k/?id=15)
+### [退党网高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=8)
 
-### [明慧网高速入口](https://dgpyfon1a5.execute-api.ap-northeast-2.amazonaws.com/58847-k/?id=3)
+### [法轮大法网入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=15)
+
+### [明慧网高速入口](https://943uiktbie.execute-api.us-east-2.amazonaws.com/158477lo-87/?id=3)
+
 
 
 
