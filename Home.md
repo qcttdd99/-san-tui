@@ -33,6 +33,8 @@
 
 ### [动态网高速入口](https://n9zf8w1jdf.execute-api.us-east-2.amazonaws.com/25847-87/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人网络直播](https://lkiseken96.execute-api.us-east-2.amazonaws.com/25847o98-po)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
 ### [新唐人高速入口](https://n9zf8w1jdf.execute-api.us-east-2.amazonaws.com/25847-87/?id=5)
 
 ### [大纪元高速入口](https://n9zf8w1jdf.execute-api.us-east-2.amazonaws.com/25847-87/?id=7)
