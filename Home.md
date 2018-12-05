@@ -28,6 +28,17 @@
 
 ***
 
+### [动态网高速入口](https://lkkb1v3de2.execute-api.us-east-2.amazonaws.com/5325478k-87u/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+
+### [新唐人高速入口](https://lkkb1v3de2.execute-api.us-east-2.amazonaws.com/5325478k-87u/?id=5)
+
+### [大纪元高速入口](https://lkkb1v3de2.execute-api.us-east-2.amazonaws.com/5325478k-87u/?id=7)
+
+### [退党网高速入口](https://lkkb1v3de2.execute-api.us-east-2.amazonaws.com/5325478k-87u/?id=8)
+
+### [法轮大法网入口](https://lkkb1v3de2.execute-api.us-east-2.amazonaws.com/5325478k-87u/?id=15)
+
+### [明慧网高速入口](https://lkkb1v3de2.execute-api.us-east-2.amazonaws.com/5325478k-87u/?id=3)
 
 ## 聚缘阁翻墙代理 
 
