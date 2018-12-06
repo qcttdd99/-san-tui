@@ -32,7 +32,11 @@
 
 ## 聚缘阁翻墙代理 
 
+### [动态网高速入口](http://34242.44r3.2h3am.tk)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人高速入口](http://34242.44r3.2h3am.tk)
+
+### [大纪元高速入口](http://34242.44r3.2h3am.tk)
 
 ## 亚马逊镜像入口 
 
