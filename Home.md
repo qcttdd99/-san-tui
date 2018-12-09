@@ -33,22 +33,18 @@
 ## 聚缘阁翻墙代理 
 
 
-### [动态网高速入口](https://evbygbbi0k.execute-api.us-east-2.amazonaws.com/51487/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://95hgz8akq5.execute-api.ap-northeast-2.amazonaws.com/2547oi9/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人网络直播](https://kbvhq87d41.execute-api.us-east-2.amazonaws.com/ytr3)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+### [新唐人高速入口](https://95hgz8akq5.execute-api.ap-northeast-2.amazonaws.com/2547oi9/?id=5)
 
-### [聚缘阁高速入口](https://mw4hzyracf.execute-api.us-east-2.amazonaws.com/58477)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [大纪元高速入口](https://95hgz8akq5.execute-api.ap-northeast-2.amazonaws.com/2547oi9/?id=7)
 
+### [退党网高速入口](https://95hgz8akq5.execute-api.ap-northeast-2.amazonaws.com/2547oi9/?id=8)
 
-### [新唐人高速入口](https://evbygbbi0k.execute-api.us-east-2.amazonaws.com/51487/?id=5)
+### [法轮大法网入口](https://95hgz8akq5.execute-api.ap-northeast-2.amazonaws.com/2547oi9/?id=15)
 
-### [大纪元高速入口](https://evbygbbi0k.execute-api.us-east-2.amazonaws.com/51487/?id=7)
+### [明慧网高速入口](https://95hgz8akq5.execute-api.ap-northeast-2.amazonaws.com/2547oi9/?id=3)
 
-### [退党网高速入口](https://evbygbbi0k.execute-api.us-east-2.amazonaws.com/51487/?id=8)
-
-### [法轮大法网入口](https://evbygbbi0k.execute-api.us-east-2.amazonaws.com/51487/?id=15)
-
-### [明慧网高速入口](https://evbygbbi0k.execute-api.us-east-2.amazonaws.com/51487/?id=3)
 
 
 
