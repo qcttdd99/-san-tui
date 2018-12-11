@@ -32,16 +32,15 @@
 
 ## 聚缘阁翻墙代理 
 
-### [动态网高速入口](https://ww2kvw9fud.execute-api.us-east-2.amazonaws.com/26548/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://a81apu02r2.execute-api.ap-northeast-2.amazonaws.com/2659879/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://ww2kvw9fud.execute-api.us-east-2.amazonaws.com/26548/?id=5)
+### [新唐人高速入口](https://a81apu02r2.execute-api.ap-northeast-2.amazonaws.com/2659879/?id=5)
 
-### [大纪元高速入口](https://ww2kvw9fud.execute-api.us-east-2.amazonaws.com/26548/?id=7)
+### [大纪元高速入口](https://a81apu02r2.execute-api.ap-northeast-2.amazonaws.com/2659879/?id=7)
 
-### [退党网高速入口](https://ww2kvw9fud.execute-api.us-east-2.amazonaws.com/26548/?id=8)
+### [退党网高速入口](https://a81apu02r2.execute-api.ap-northeast-2.amazonaws.com/2659879/?id=8)
 
-### [法轮大法网入口](https://ww2kvw9fud.execute-api.us-east-2.amazonaws.com/26548/?id=15)
-
+### [法轮大法网入口](https://a81apu02r2.execute-api.ap-northeast-2.amazonaws.com/2659879/?id=15)
 
 ## 亚马逊镜像入口 
 
