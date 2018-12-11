@@ -32,17 +32,15 @@
 
 ## 聚缘阁翻墙代理 
 
-### [动态网高速入口](https://531xvzm44j.execute-api.us-east-2.amazonaws.com/776ytre33455/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://ujdsj4oq23.execute-api.us-east-2.amazonaws.com/o78655)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://531xvzm44j.execute-api.us-east-2.amazonaws.com/776ytre33455/?id=5)
+### [新唐人高速入口](https://ujdsj4oq23.execute-api.us-east-2.amazonaws.com/o78655)
 
-### [大纪元高速入口](https://531xvzm44j.execute-api.us-east-2.amazonaws.com/776ytre33455/?id=7)
+### [大纪元高速入口](https://ujdsj4oq23.execute-api.us-east-2.amazonaws.com/o78655)
 
-### [退党网高速入口](https://531xvzm44j.execute-api.us-east-2.amazonaws.com/776ytre33455/?id=8)
+### [退党网高速入口](https://ujdsj4oq23.execute-api.us-east-2.amazonaws.com/o78655)
 
-### [法轮大法网入口](https://531xvzm44j.execute-api.us-east-2.amazonaws.com/776ytre33455/?id=15)
-
-### [明慧网高速入口](https://531xvzm44j.execute-api.us-east-2.amazonaws.com/776ytre33455/?id=3)
+### [法轮大法网入口](https://ujdsj4oq23.execute-api.us-east-2.amazonaws.com/o78655)
 
 
 
