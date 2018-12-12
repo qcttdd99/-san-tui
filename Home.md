@@ -32,15 +32,16 @@
 
 ## 聚缘阁翻墙代理 
 
-### [动态网高速入口](http://42552163.asfewrwoewtw.lc37s.tk/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://4255216.asfewrwoewbw.lc37s.tk/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](http://42552163.asfewrwoewtw.lc37s.tk/5)
+### [新唐人高速入口](http://42552164.asfewrwoewbw.lc37s.tk/5)
 
-### [大纪元高速入口](http://42552163.asfewrwoewtw.lc37s.tk/7)
+### [大纪元高速入口](http://42552164.asfewrwoewbw.lc37s.tk/7)
 
-### [退党网高速入口](http://42552163.asfewrwoewtw.lc37s.tk/8)
+### [退党网高速入口](http://42552164.asfewrwoewbw.lc37s.tk/8)
 
-### [法轮大法网入口](http://42552163.asfewrwoewtw.lc37s.tk/15)
+### [法轮大法网入口](http://42552164.asfewrwoewbw.lc37s.tk/15)
+
 ## 亚马逊镜像入口 
 
 请逐一点击,你一定会成功破网
