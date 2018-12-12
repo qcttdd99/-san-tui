@@ -32,6 +32,8 @@
 
 ## 聚缘阁翻墙代理 
 
+![](https://raw.githubusercontent.com/hao369/a/master/wx.jpg)
+
 ### [动态网高速入口](http://4255216.asfewrwoewbw.lc37s.tk/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [新唐人高速入口](http://42552164.asfewrwoewbw.lc37s.tk/5)
