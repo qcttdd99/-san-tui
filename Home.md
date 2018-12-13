@@ -34,14 +34,14 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
-### [动态网高速入口](http://4258de.asfewrwoewtw.lc37s.tk/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://4258de.juhy.v8e4d.gq/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](http://425y515rt.asfewrwoewtw.lc37s.tk/5)
+### [新唐人高速入口](http://425y515rt.juhy.v8e4d.gq/5)
 
-### [大纪元高速入口](http://425y5225ew.asfewrwoewtw.lc37s.tk/7)
+### [大纪元高速入口](http://425y5225ew.juhy.v8e4d.gq/7)
 
-### [退党网高速入口](http://4255y2j.asfewrwoewtw.lc37s.tk/8)
+### [退党网高速入口](http://4255y2j.juhy.v8e4d.gq/8)
 
 ### [法轮大法网入口](http://4yu2ty6.asfewrwoewtw.lc37s.tk/15)
 
