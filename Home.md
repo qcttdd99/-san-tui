@@ -34,17 +34,15 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
-### [动态网高速入口](https://6hzc9k9t44.execute-api.ap-northeast-2.amazonaws.com/r3535f/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://467o9eed.hao36.sprhaa.com/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://6hzc9k9t44.execute-api.ap-northeast-2.amazonaws.com/r3535f/?id=5)
+### [新唐人高速入口](http://575e9oew.hao36.sprhaa.com/5)
 
-### [大纪元高速入口](https://6hzc9k9t44.execute-api.ap-northeast-2.amazonaws.com/r3535f/?id=7)
+### [大纪元高速入口](http://475emjew.hao36.sprhaa.com/7)
 
-### [退党网高速入口](https://6hzc9k9t44.execute-api.ap-northeast-2.amazonaws.com/r3535f/?id=8)
+### [退党网高速入口](http://te6e798ew.hao36.sprhaa.com/8)
 
-### [法轮大法网入口](https://6hzc9k9t44.execute-api.ap-northeast-2.amazonaws.com/r3535f/?id=15)
-
-### [明慧网高速入口](https://6hzc9k9t44.execute-api.ap-northeast-2.amazonaws.com/r3535f/?id=3)
+### [法轮大法网入口](http://42ewet.hao36.sprhaa.com/15)
 
 ## 亚马逊镜像入口 
 
