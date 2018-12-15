@@ -36,6 +36,11 @@
 
 ### [动态网高速入口](http://4685q.7412.w4rnf.com/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人网络直播](https://b0osscr5dd.execute-api.ap-northeast-2.amazonaws.com/rry)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
+### [聚缘阁视频网一](https://0prkqb7r80.execute-api.ap-northeast-2.amazonaws.com/59898)
+
+
 ### [新唐人高速入口](http://575q.7412.w4rnf.com/5)
 
 ### [大纪元高速入口](http://47hq.6954a.w4rnf.com/7)
