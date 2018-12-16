@@ -34,15 +34,15 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
-### [动态网高速入口](http://44536.7412w.w4rnf.com/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://445grt.7412w.w4rnf.com/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](http://556367.7412w.w4rnf.com/5)
+### [新唐人高速入口](http://556tee.7412w.w4rnf.com/5)
 
-### [大纪元高速入口](http://4799o.7412w.w4rnf.com/7)
+### [大纪元高速入口](http://4rt4.7412w.w4rnf.com/7)
 
-### [退党网高速入口](http://t2424.7412w.w4rnf.com/8)
+### [退党网高速入口](http://t655.7412w.w4rnf.com/8)
 
-### [法轮大法网入口](http://47585.7412w.w4rnf.com/15)
+### [法轮大法网入口](http://4746475.7412w.w4rnf.com/15)
 
 ## 亚马逊镜像入口 
 
