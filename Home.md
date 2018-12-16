@@ -36,6 +36,8 @@
 
 ### [动态网高速入口](http://445grt.7412w.w4rnf.com/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人网络直播](https://kfnw967dc9.execute-api.us-east-2.amazonaws.com/8547)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
 ### [新唐人高速入口](http://556tee.7412w.w4rnf.com/5)
 
 ### [大纪元高速入口](http://4rt4.7412w.w4rnf.com/7)
