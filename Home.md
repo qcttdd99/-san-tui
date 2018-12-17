@@ -38,7 +38,7 @@
 
 ### [新唐人网络直播](https://2tsmjh41zk.execute-api.us-east-2.amazonaws.com/rete)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
 
-### [聚缘阁高速入口](https://h1p3on70r5.execute-api.us-east-2.amazonaws.com/2587)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://vvx67c218k.execute-api.us-east-2.amazonaws.com/26598)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 ### [新唐人高速入口](https://ffbgjn1fzc.execute-api.us-east-2.amazonaws.com/ret/?id=5)
