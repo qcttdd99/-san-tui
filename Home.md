@@ -34,19 +34,17 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
-### [动态网高速入口](https://g0nit6xy34.execute-api.us-east-2.amazonaws.com/koi/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://mpkpumlotj.execute-api.us-east-2.amazonaws.com/ds/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://g0nit6xy34.execute-api.us-east-2.amazonaws.com/koi/?id=5)
+### [新唐人高速入口](https://mpkpumlotj.execute-api.us-east-2.amazonaws.com/ds/?id=5)
 
-### [大纪元高速入口](https://g0nit6xy34.execute-api.us-east-2.amazonaws.com/koi/?id=7)
+### [大纪元高速入口](https://mpkpumlotj.execute-api.us-east-2.amazonaws.com/ds/?id=7)
 
-### [退党网高速入口](https://g0nit6xy34.execute-api.us-east-2.amazonaws.com/koi/?id=8)
+### [退党网高速入口](https://mpkpumlotj.execute-api.us-east-2.amazonaws.com/ds/?id=8)
 
-### [法轮大法网入口](https://g0nit6xy34.execute-api.us-east-2.amazonaws.com/koi/?id=15)
+### [法轮大法网入口](https://mpkpumlotj.execute-api.us-east-2.amazonaws.com/ds/?id=15)
 
-### [明慧网高速入口](https://g0nit6xy34.execute-api.us-east-2.amazonaws.com/koi/?id=3)
-
-## 亚马逊镜像入口 
+### [明慧网高速入口](https://mpkpumlotj.execute-api.us-east-2.amazonaws.com/ds/?id=3)
 
 请逐一点击,你一定会成功破网
 
