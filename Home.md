@@ -36,6 +36,8 @@
 
 ### [动态网高速入口](http://6998.015x1.tk/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [聚缘阁高速入口](https://fb3bzg6740.execute-api.ap-northeast-1.amazonaws.com/477)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+
 ### [新唐人高速入口](http://6998.015x1.tk/5)
 
 ### [大纪元高速入口](http://6998.015x1.tk/7)
