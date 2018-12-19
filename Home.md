@@ -36,6 +36,10 @@
 
 ### [动态网高速入口](https://apssf7jkhh.execute-api.ap-northeast-2.amazonaws.com/587/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [聚缘阁高速入口](https://lc7ax87k08.execute-api.ap-northeast-1.amazonaws.com/5989j)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+
+### [新唐人网络直播](https://ct0erxhpy3.execute-api.ap-northeast-1.amazonaws.com/457)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
 ### [新唐人高速入口](https://apssf7jkhh.execute-api.ap-northeast-2.amazonaws.com/587/?id=5)
 
 ### [大纪元高速入口](https://apssf7jkhh.execute-api.ap-northeast-2.amazonaws.com/587/?id=7)
