@@ -34,17 +34,18 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
-### [动态网高速入口](https://lswcpvjghk.execute-api.ap-northeast-1.amazonaws.com/fte/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://kcpqm5x3zc.execute-api.ap-northeast-1.amazonaws.com/258/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://lswcpvjghk.execute-api.ap-northeast-1.amazonaws.com/fte/?id=5)
+### [新唐人高速入口](https://kcpqm5x3zc.execute-api.ap-northeast-1.amazonaws.com/258/?id=5)
 
-### [大纪元高速入口](https://lswcpvjghk.execute-api.ap-northeast-1.amazonaws.com/fte/?id=7)
+### [大纪元高速入口](https://kcpqm5x3zc.execute-api.ap-northeast-1.amazonaws.com/258/?id=7)
 
-### [退党网高速入口](https://lswcpvjghk.execute-api.ap-northeast-1.amazonaws.com/fte/?id=8)
+### [退党网高速入口](https://kcpqm5x3zc.execute-api.ap-northeast-1.amazonaws.com/258/?id=8)
 
-### [法轮大法网入口](https://lswcpvjghk.execute-api.ap-northeast-1.amazonaws.com/fte/?id=15)
+### [法轮大法网入口](https://kcpqm5x3zc.execute-api.ap-northeast-1.amazonaws.com/258/?id=15)
 
-### [明慧网高速入口](https://lswcpvjghk.execute-api.ap-northeast-1.amazonaws.com/fte/?id=3)
+### [明慧网高速入口](https://kcpqm5x3zc.execute-api.ap-northeast-1.amazonaws.com/258/?id=3)
+
 请逐一点击,你一定会成功破网
 
 ### **[入口一](http://x.co/2244)** **[入口二](http://x.co/3824)**
