@@ -34,18 +34,17 @@
 
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
-### [动态网高速入口](https://72uyq5o643.execute-api.ap-southeast-1.amazonaws.com/552q/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://wq2.2h3am.tk/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](https://72uyq5o643.execute-api.ap-southeast-1.amazonaws.com/552q/?id=5)
+### [新唐人高速入口](http://wq2.2h3am.tk/5)
 
-### [大纪元高速入口](https://72uyq5o643.execute-api.ap-southeast-1.amazonaws.com/552q/?id=7)
+### [大纪元高速入口](http://wq2.2h3am.tk/7)
 
-### [退党网高速入口](https://72uyq5o643.execute-api.ap-southeast-1.amazonaws.com/552q/?id=8)
+### [退党网高速入口](http://wq2.2h3am.tk/8)
 
-### [法轮大法网入口](https://72uyq5o643.execute-api.ap-southeast-1.amazonaws.com/552q/?id=15)
+### [法轮大法网入口](http://wq2.2h3am.tk/15)
 
-### [明慧网高速入口](https://72uyq5o643.execute-api.ap-southeast-1.amazonaws.com/552q/?id=3)
-
+### [明慧网高速入口](http://wq2.2h3am.tk/3)
 
 请逐一点击,你一定会成功破网
 
