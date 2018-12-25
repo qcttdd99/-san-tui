@@ -1,27 +1,7 @@
+*.ewth3.vraet.cf 
 
-![](https://raw.githubusercontent.com/hao369/a/master/j.jpg)
+*.et4.vraet.cf 
 
-**【公告】代理大升级，全程SSL加密传送，支持youtube视频播放，新唐人视频播放。。。**
+*.qgt5.vraet.cf
 
- [聚缘阁代理安卓版](https://github.com/hao369/a/raw/master/j8.apk)
-
- [聚缘阁视频网](http://zas1.55td.ga/9.html)
-
-[聚缘阁二站](http://zas1.55td.ga/j2)
-
-
- [动态网](http://zas1.55td.ga/)
-
-[退党网](http://zas1.55td.ga/?id=8)
-
-[大纪元](http://zas1.55td.ga/?id=7)
-
-[新唐人](http://zas1.55td.ga/?id=5)
-
-[明慧网](http://zas1.55td.ga/?id=3)
-
-[禁闻网](http://zas1.55td.ga/?id=16)
-
-[法轮大法](http://zas1.55td.ga/?id=15)
-
-
+ *.juik6.vraet.cf
