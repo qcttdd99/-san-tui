@@ -38,6 +38,9 @@
 
 ### [聚缘阁高速入口](https://j1ktpxs00e.execute-api.ap-northeast-2.amazonaws.com/5687)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
+### [新唐人网络直播](https://gogqbxjw2e.execute-api.ap-northeast-2.amazonaws.com/58)![](https://raw.githubusercontent.com/hao369/a/master/jygtj.gif)
+
+
 
 ### [新唐人高速入口](https://7aljsbgrrl.execute-api.eu-west-2.amazonaws.com/5689/?id=5)
 
