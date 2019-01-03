@@ -35,20 +35,17 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
 
-### [动态网高速入口](https://h9fxhm24l9.execute-api.us-east-1.amazonaws.com/qt/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://7xswvb9iij.execute-api.us-east-1.amazonaws.com/sat/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [聚缘阁高速入口](https://l8yr1kj55h.execute-api.ap-northeast-1.amazonaws.com/53536)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [新唐人高速入口](https://7xswvb9iij.execute-api.us-east-1.amazonaws.com/sat/?id=5)
 
+### [大纪元高速入口](https://7xswvb9iij.execute-api.us-east-1.amazonaws.com/sat/?id=7)
 
-### [新唐人高速入口](https://h9fxhm24l9.execute-api.us-east-1.amazonaws.com/qt/?id=5)
+### [退党网高速入口](https://7xswvb9iij.execute-api.us-east-1.amazonaws.com/sat/?id=8)
 
-### [大纪元高速入口](https://h9fxhm24l9.execute-api.us-east-1.amazonaws.com/qt/?id=7)
+### [法轮大法网入口](https://7xswvb9iij.execute-api.us-east-1.amazonaws.com/sat/?id=15)
 
-### [退党网高速入口](https://h9fxhm24l9.execute-api.us-east-1.amazonaws.com/qt/?id=8)
-
-### [法轮大法网入口](https://h9fxhm24l9.execute-api.us-east-1.amazonaws.com/qt/?id=15)
-
-### [明慧网高速入口](https://h9fxhm24l9.execute-api.us-east-1.amazonaws.com/qt/?id=3)
+### [明慧网高速入口](https://7xswvb9iij.execute-api.us-east-1.amazonaws.com/sat/?id=3)
 
 ### **[入口一](http://x.co/2244)** **[入口二](http://x.co/3824)**
 
