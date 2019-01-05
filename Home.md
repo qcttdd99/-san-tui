@@ -37,8 +37,6 @@
 
 ### [动态网高速入口](https://5ism0d90kd.execute-api.us-east-2.amazonaws.com/6558/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [聚缘阁高速入口](https://0c0y6hudz1.execute-api.ap-southeast-1.amazonaws.com/458666)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
-
 
 ### [新唐人高速入口](https://5ism0d90kd.execute-api.us-east-2.amazonaws.com/6558/?id=5)
 
