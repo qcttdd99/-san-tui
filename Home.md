@@ -37,6 +37,7 @@
 ### [动态网高速入口](https://h6plxvpfr0.execute-api.us-east-1.amazonaws.com/21)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
+### [聚缘阁高速入口](https://gp8er4ojyi.execute-api.ap-northeast-2.amazonaws.com/214)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 ### **[入口一](http://x.co/2244)** **[入口二](http://x.co/3824)**
