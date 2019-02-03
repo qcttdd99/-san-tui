@@ -37,13 +37,13 @@
 
 ### [聚缘阁高速入口](https://gp8er4ojyi.execute-api.ap-northeast-2.amazonaws.com/214)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [动态网高速入口]( https://5589.ghelguyt.gq/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口]( https://3699v.ghelguyt.gq/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口]( https://5589.ghelguyt.gq/?id=5)
+### [新唐人高速入口]( https://3699v.ghelguyt.gq/?id=5)
 
-### [大纪元高速入口](https://5589.ghelguyt.gq/?id=7)
+### [大纪元高速入口](https://3699v.ghelguyt.gq/?id=7)
 
-### [退党网高速入口](https://5589.ghelguyt.gq/?id=8)
+### [退党网高速入口](https://3699v.ghelguyt.gq/?id=8)
 
 
 
