@@ -37,39 +37,6 @@
 
 ### [聚缘阁高速入口](https://160sqnkewa.execute-api.us-east-1.amazonaws.com/214)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [动态网高速入口]( https://3699v.ghelguyt.gq/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [聚缘阁高速入口](https://36bomj7w19.execute-api.ap-northeast-2.amazonaws.com/2541)
 
-### [新唐人高速入口]( https://3699v.ghelguyt.gq/?id=5)
-
-### [大纪元高速入口](https://3699v.ghelguyt.gq/?id=7)
-
-### [退党网高速入口](https://3699v.ghelguyt.gq/?id=8)
-
-
-
-
-### **[入口一](http://x.co/2244)** **[入口二](http://x.co/3824)**
-
-
-### **[入口三](https://s3.eu-central-1.amazonaws.com/jyg3/index.html)**  **[入口四](https://s3-ap-southeast-1.amazonaws.com/jyg4/index.html)**
-
-### **[入口五](https://s3.ap-south-1.amazonaws.com/jyg5/index.html)**  **[入口六](https://s3-us-west-1.amazonaws.com/jyg6/index.html)**
-
-
-###  **[入口七](https://s3-us-west-2.amazonaws.com/jyg7/index.html)**  **[入口八](https://s3-eu-west-1.amazonaws.com/jyg8/index.html)**
-
-
-###  **[入口九](https://s3-ap-northeast-1.amazonaws.com/jyg9/index.html)**  **[入口十](https://s3.amazonaws.com/dtw/index.html)**
-
-
-
-## 临时网址入口 
-
-网址有效期为几小时，全程加密
-
-### [动态网入口二](https://x.co/ddg)
-
-### [动态网入口三](https://x.co/ddf)
-
-
-
+### [聚缘阁高速入口](https://4mixjyclr7.execute-api.ap-northeast-2.amazonaws.com/j)
