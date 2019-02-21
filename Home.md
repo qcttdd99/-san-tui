@@ -35,7 +35,7 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
 
-### [聚缘阁高速入口](https://gp8er4ojyi.execute-api.ap-northeast-2.amazonaws.com/214)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://160sqnkewa.execute-api.us-east-1.amazonaws.com/214)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [动态网高速入口]( https://3699v.ghelguyt.gq/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
