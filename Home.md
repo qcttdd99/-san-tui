@@ -23,7 +23,7 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
 
-### [动态网高速入口](https://abcd3.cloudflont.net/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://9963.cloudflont.net/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [新唐人高速入口](https://abcd3.cloudflont.net/5)
 
