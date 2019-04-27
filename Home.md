@@ -28,7 +28,7 @@
 
 ### [动态网高速入口](https://2y0i5dnxl2.execute-api.us-east-1.amazonaws.com/d3)
 
-### [聚缘阁高速入口](https://qzgq24gy8f.execute-api.ap-northeast-2.amazonaws.com/jyg)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://msv0n1xg7j.execute-api.ap-northeast-2.amazonaws.com/jt)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 ### [大纪元实事新闻](https://git.io/fjmgE)
