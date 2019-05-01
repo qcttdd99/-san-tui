@@ -23,7 +23,7 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
 
-### [动态网高速入口](https://gr5.mujv.pw/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://123w.erw3.ooo/2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 ### [动态网高速入口](https://2y0i5dnxl2.execute-api.us-east-1.amazonaws.com/d3)
