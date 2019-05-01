@@ -26,7 +26,9 @@
 ### [动态网高速入口](https://a4qduicoha.execute-api.ap-northeast-2.amazonaws.com/215/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [动态网高速入口](https://2y0i5dnxl2.execute-api.us-east-1.amazonaws.com/d3)
+### [新唐人高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/?id=5)
+
+### [大纪元高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/?id=7)
 
 ### [聚缘阁高速入口](https://msv0n1xg7j.execute-api.ap-northeast-2.amazonaws.com/jt)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
