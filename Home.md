@@ -31,7 +31,7 @@
 
 ### [大纪元高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/?id=7)
 
-### [聚缘阁高速入口](https://8foztkyrw7.execute-api.ap-northeast-2.amazonaws.com/j)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/?id=72547)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 ### [大纪元实事新闻](https://git.io/fjmgE)
@@ -46,6 +46,6 @@
 
 ### [自媒体视频](https://buudtuvzhl.execute-api.ap-northeast-1.amazonaws.com/bcx)
 
-### [聚缘阁高速入口](https://4mixjyclr7.execute-api.ap-northeast-2.amazonaws.com/j)
+
 
 
