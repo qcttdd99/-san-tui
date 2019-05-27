@@ -24,14 +24,14 @@
 ![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
 
 
-### [动态网高速入口](https://a4qduicoha.execute-api.ap-northeast-2.amazonaws.com/215/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://a4qduicoha.execute-api.ap-northeast-2.amazonaws.com/215/)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/?id=5)
+### [新唐人高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/)
 
-### [大纪元高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/?id=7)
+### [大纪元高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/)
 
-### [聚缘阁高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/?id=72547)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 ### [大纪元实事新闻](https://git.io/fjmgE)
