@@ -21,7 +21,10 @@
 
 ## 聚缘阁翻墙代理 
 
-![](https://raw.githubusercontent.com/hao369/a/master/wx2.jpg)
+**本网页已经被国内的很多手机浏览器屏障，可以通过欧朋手机浏览器成功访问**
+
+[欧朋下载地址一](https://github.com/hao369/611/raw/master/oupengliulanqi_108.apk)   [欧朋下载地址二](http://gdown.baidu.com/data/wisegame/9a276c92b5b78d2d/oupengliulanqi_108.apk)
+
 
 
 ### [动态网高速入口](https://a4qduicoha.execute-api.ap-northeast-2.amazonaws.com/215/)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
