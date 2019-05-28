@@ -10,7 +10,7 @@
 
  
 **聚缘阁代理安卓版**
-### https://git.io/jygapk    ←重新下载升级
+### https://git.io/jygapk  
 
 ***
 
