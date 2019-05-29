@@ -25,13 +25,12 @@
 
 ## 聚缘阁翻墙代理 
 
+### [聚缘阁高速入口](https://r9bmhs417c.execute-api.us-east-1.amazonaws.com/5)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [动态网高速入口](https://a4qduicoha.execute-api.ap-northeast-2.amazonaws.com/215/)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://r9bmhs417c.execute-api.us-east-1.amazonaws.com/5)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/)
-
-### [大纪元高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51/)
+### [新唐人高速入口](https://r9bmhs417c.execute-api.us-east-1.amazonaws.com/5)
 
 ### [聚缘阁高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
