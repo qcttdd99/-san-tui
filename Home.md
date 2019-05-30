@@ -32,8 +32,6 @@
 
 ### [新唐人高速入口](https://r9bmhs417c.execute-api.us-east-1.amazonaws.com/5)
 
-### [聚缘阁高速入口](https://fcxwq637uk.execute-api.ap-northeast-2.amazonaws.com/51)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
-
 
 ### [大纪元实事新闻](https://git.io/fjmgE)
 
