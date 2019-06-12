@@ -42,10 +42,6 @@
 ### [禁书在线阅读](https://git.io/fjJ5Z)
 
 
-### [明慧网高速入口](https://jzvagsk4rl.execute-api.ap-northeast-2.amazonaws.com/dtt)
-
-
-### [自媒体视频](https://buudtuvzhl.execute-api.ap-northeast-1.amazonaws.com/bcx)
 
 
 
