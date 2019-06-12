@@ -27,12 +27,12 @@
 
 ### [聚缘阁高速入口](http://2355.wyjp.ga/jyg)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [动态网高速入口](http://2355.wyjp.ga/tz/?abc)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](http://2355.wyjp.ga/tz/?99w)
+### [新唐人高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp)
 
-### [大纪元高速入口](http://2355.wyjp.ga/tz/?abc)
+### [大纪元高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp)
 
 
 ### [大纪元实事新闻](https://git.io/fjmgE)
