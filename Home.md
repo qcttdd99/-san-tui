@@ -25,14 +25,14 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁高速入口](https://149v.59uap.club/jyg)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](http://2355.wyjp.ga/jyg)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [动态网高速入口](https://149v.59uap.club/tz/?hao)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://2355.wyjp.ga/tz/?abc)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](https://149v.59uap.club/tz/?99w)
+### [新唐人高速入口](http://2355.wyjp.ga/tz/?99w)
 
-### [大纪元高速入口](https://149v.59uap.club/tz/?abc)
+### [大纪元高速入口](http://2355.wyjp.ga/tz/?abc)
 
 
 ### [大纪元实事新闻](https://git.io/fjmgE)
