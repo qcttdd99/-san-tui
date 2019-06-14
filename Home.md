@@ -25,7 +25,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁高速入口](http://2355.wyjp.ga/jyg)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://g7gfzxuspg.execute-api.ap-northeast-2.amazonaws.com/j)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [动态网高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
