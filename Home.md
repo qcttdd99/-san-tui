@@ -27,12 +27,14 @@
 
 ### [聚缘阁高速入口](https://g7gfzxuspg.execute-api.ap-northeast-2.amazonaws.com/j)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [动态网高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp)
+### [新唐人高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp/?id=5)
 
-### [大纪元高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp)
+### [大纪元高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp/?id=7)
+
+### [退党网高速入口](https://qippa1otp2.execute-api.ap-southeast-1.amazonaws.com/jp/?id=8)
 
 
 ### [大纪元实事新闻](https://git.io/fjmgE)
