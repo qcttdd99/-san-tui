@@ -25,7 +25,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁高速入口](https://kdkn7geodg.execute-api.us-east-1.amazonaws.com/ge)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://55tv.cdrr5.gq/)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [动态网高速入口](https://jof9sjbrl4.execute-api.us-east-1.amazonaws.com/mp/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
