@@ -25,7 +25,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁高速入口](http://zote.a33.andersongould.com)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://ds.37lx8.ml/)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [动态网高速入口](https://jof9sjbrl4.execute-api.us-east-1.amazonaws.com/mp/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
