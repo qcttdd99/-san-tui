@@ -33,9 +33,9 @@
 
 ### [新唐人高速入口](https://j2.fdy4y.ml/)
 
-### [大纪元高速入口](https://jof9sjbrl4.execute-api.us-east-1.amazonaws.com/mp/?id=7)
+### [大纪元高速入口](https://j2.fdy4y.ml/)
 
-### [退党网高速入口](https://jof9sjbrl4.execute-api.us-east-1.amazonaws.com/mp/?id=8)
+### [退党网高速入口](https://j2.fdy4y.ml/)
 
 
 
