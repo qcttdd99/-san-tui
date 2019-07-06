@@ -28,10 +28,10 @@
 
 ### [聚缘阁高速入口](https://ei87uml6i0.execute-api.ap-southeast-1.amazonaws.com/3)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [动态网高速入口](https://jof9sjbrl4.execute-api.us-east-1.amazonaws.com/mp/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://j1.fdy4y.ml/)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](https://jof9sjbrl4.execute-api.us-east-1.amazonaws.com/mp/?id=5)
+### [新唐人高速入口](https://j2.fdy4y.ml/)
 
 ### [大纪元高速入口](https://jof9sjbrl4.execute-api.us-east-1.amazonaws.com/mp/?id=7)
 
