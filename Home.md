@@ -27,14 +27,14 @@
 ## 聚缘阁翻墙代理 
 
 
-### [聚缘阁高速入口](http://t5.wyhe54.tk/sj/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://y6.wyhe54.tk/sj/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [动态网高速入口](http://t5.wyhe54.tk/sj/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://y6.wyhe54.tk/sj/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](http://t5.wyhe54.tk/sj/?id=5)
+### [新唐人高速入口](https://y6.wyhe54.tk/sj/?id=5)
 
-### [大纪元高速入口](http://t5.wyhe54.tk/sj/?id=7)
+### [大纪元高速入口](https://y6.wyhe54.tk/sj/?id=7)
 
 ### [退党网高速入口](https://j2.fdy4y.ml/)
 
