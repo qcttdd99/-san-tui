@@ -28,16 +28,16 @@
 ## 聚缘阁翻墙代理 
 
 
-### [聚缘阁高速入口](http://hao4.g432d.ml/?id=5)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://jyg66.gaeww3.ga/?id=5)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
-### [动态网高速入口](http://haoc.4kjhy.ga/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://jyg66.gaeww3.ga/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](https://haoc.4kjhy.ga/?id=5)
+### [新唐人高速入口](https://jyg66.gaeww3.ga/?id=5)
 
-### [大纪元高速入口](https://haoc.4kjhy.ga/?id=7)
+### [大纪元高速入口](https://jyg66.gaeww3.ga/?id=7)
 
-### [退党网高速入口](https://hao4.g432d.ml/?id=8)
+### [退党网高速入口](https://jyg66.gaeww3.ga/?id=8)
 
 
 
