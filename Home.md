@@ -28,7 +28,7 @@
 ## 聚缘阁翻墙代理 
 
 
-### [聚缘阁高速入口](https://j7a.vwertg.ga/)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://gfree.gaeww3.ga/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [动态网高速入口](https://jyg66.gaeww3.ga/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
