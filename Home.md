@@ -28,7 +28,7 @@
 ## 聚缘阁翻墙代理 
 
 
-### [聚缘阁禁闻导航](https://5a.weihu.gq/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁禁闻导航](https://5a.weihu.gq/)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [动态网高速入口](https://jyg66.gaeww3.ga/?id=2)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
