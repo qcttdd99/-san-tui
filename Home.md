@@ -30,14 +30,14 @@
 
 ### [聚缘阁禁闻导航](https://5a.weihu.gq/)![](https://tup.vraet.cf/jyg.gif)
 
-### [动态网高速入口](https://hao.jyg3.eu.org/?id=2)![](https://tup.vraet.cf/jygdl.gif)
+### [动态网高速入口](https://hao1.jyg3.eu.org/?id=2)![](https://tup.vraet.cf/jygdl.gif)
 
 
-### [新唐人高速入口](https://hao.jyg3.eu.org/?id=5)
+### [新唐人高速入口](https://hao1.jyg3.eu.org/?id=5)
 
-### [大纪元高速入口](https://hao.jyg3.eu.org/?id=7)
+### [大纪元高速入口](https://hao1.jyg3.eu.org/?id=7)
 
-### [退党网高速入口](https://hao.jyg3.eu.org/?id=8)
+### [退党网高速入口](https://hao1.jyg3.eu.org/?id=8)
 
 
 
