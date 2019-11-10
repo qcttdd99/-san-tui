@@ -28,16 +28,16 @@
 ## 聚缘阁翻墙代理 
 
 
-### [聚缘阁禁闻导航](https://taa2.tv99.eu.org)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://v2.vcfkoo.ga)![](https://tup.vraet.cf/jyg.gif)
 
-### [动态网高速入口](https://taa2.tv99.eu.orgg)![](https://tup.vraet.cf/jygdl.gif)
+### [动态网高速入口](https://v2.vcfkoo.ga)![](https://tup.vraet.cf/jygdl.gif)
 
 
-### [新唐人高速入口](https://taa2.tv99.eu.org)
+### [新唐人高速入口](https://v2.vcfkoo.ga)
 
-### [大纪元高速入口](https://taa2.tv99.eu.org)
+### [大纪元高速入口](https://v2.vcfkoo.ga)
 
-### [退党网高速入口](https://taa2.tv99.eu.org)
+### [退党网高速入口](https://v2.vcfkoo.ga)
 
 
 
