@@ -28,7 +28,7 @@
 ## 聚缘阁翻墙代理 
 
 
-### [聚缘阁禁闻导航](https://66.xczfg.cf/?id=2)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://dh.u2i62.tk)![](https://tup.vraet.cf/jyg.gif)
 
 ### [动态网高速入口](https://66.xczfg.cf/?id=2)![](https://tup.vraet.cf/jygdl.gif)
 
