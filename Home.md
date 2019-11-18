@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://nameless-unit-62b6.88uf.workers.dev/-----http://sp.jyge.eu.org)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://66.hgw4y.gq/)![](https://tup.vraet.cf/jyg.gif)
 
 ### [动态网高速入口](https://66.hgw4y.gq/?id=2)![](https://tup.vraet.cf/jygdl.gif)
 
