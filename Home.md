@@ -31,14 +31,14 @@
 
 ### [聚缘阁禁闻导航](https://cool-wildflower-cc4e.vsseber.workers.dev/-----https://66u.nnmyr.tk/)![](https://tup.vraet.cf/jyg.gif)
 
-### [动态网高速入口](http://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
+### [动态网高速入口](https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
 
-### [新唐人高速入口](http://662.nhhc.com.au)
+### [新唐人高速入口](https://662.nhhc.com.au)
 
-### [大纪元高速入口](http://662.nhhc.com.au)
+### [大纪元高速入口](https://662.nhhc.com.au)
 
-### [退党网高速入口](http://662.nhhc.com.au)
+### [退党网高速入口](https://662.nhhc.com.au)
 
 
 
