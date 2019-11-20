@@ -31,10 +31,10 @@
 
 ### [聚缘阁禁闻导航](https://lingering-night-7631.saaewetw.workers.dev/-----https://66u.nnmyr.tk/)![](https://tup.vraet.cf/jyg.gif)
 
-### [动态网高速入口](https://lingering-night-7631.saaewetw.workers.dev/-----https://66u.nnmyr.tk/)![](https://tup.vraet.cf/jygdl.gif)
+### [动态网高速入口](https://winter-bread-51e4.fafwgw3gaw.workers.dev/-----https://66u.nnmyr.tk/)![](https://tup.vraet.cf/jygdl.gif)
 
 
-### [新唐人高速入口](https://lingering-night-7631.saaewetw.workers.dev/-----https://66u.nnmyr.tk/)
+### [新唐人高速入口](https://winter-bread-51e4.fafwgw3gaw.workers.dev/-----https://66u.nnmyr.tk/)
 
 ### [大纪元高速入口](https://lingering-night-7631.saaewetw.workers.dev/-----https://66u.nnmyr.tk/)
 
