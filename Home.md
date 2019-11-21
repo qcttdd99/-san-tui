@@ -27,18 +27,18 @@
 
 ## 聚缘阁翻墙代理 
 
+https://untitled-2lyllzuqo3pm.runkit.sh/
 
-
-### [聚缘阁禁闻导航](https://rtgesd-4abwt8ijgmh3.runkit.sh/)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://rt5888gesd-4abwt8ijgmh3.runkit.sh/)![](https://tup.vraet.cf/jyg.gif)
 
 ### [动态网高速入口](https://super-poetry-ecdf.eeww432.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
 
-### [新唐人高速入口](https://u147jd-7dvrrhw5p9sa.runkit.sh/)
+### [新唐人高速入口](https://super-poetry-ecdf.eeww432.workers.dev/-----https://662.nhhc.com.au)
 
 ### [大纪元高速入口](https://super-poetry-ecdf.eeww432.workers.dev/-----https://662.nhhc.com.au)
 
-### [退党网高速入口](https://u2541d-7dvrrhw5p9sa.runkit.sh/)
+### [退党网高速入口](https://super-poetry-ecdf.eeww432.workers.dev/-----https://662.nhhc.com.au)
 
 
 
