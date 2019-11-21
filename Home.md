@@ -34,11 +34,11 @@
 ### [动态网高速入口](https://super-poetry-ecdf.eeww432.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
 
-### [新唐人高速入口](https://super-poetry-ecdf.eeww432.workers.dev/-----https://662.nhhc.com.au)
+### [新唐人高速入口](https://u147jd-7dvrrhw5p9sa.runkit.sh/)
 
 ### [大纪元高速入口](https://super-poetry-ecdf.eeww432.workers.dev/-----https://662.nhhc.com.au)
 
-### [退党网高速入口](https://untmhjty5d-7dvrrhw5p9sa.runkit.sh/)
+### [退党网高速入口](https://u2541d-7dvrrhw5p9sa.runkit.sh/)
 
 
 
