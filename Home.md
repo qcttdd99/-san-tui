@@ -31,14 +31,14 @@
 
 ### [聚缘阁禁闻导航](http://214erga.tzdh.trevimedia.net)![](https://tup.vraet.cf/jyg.gif)
 
-### [动态网高速入口](https://white-tooth-edcc.bdrjrssdr4.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
+### [动态网高速入口](https://bold-sea-8e40.bdrjrssdr4.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
 
-### [新唐人高速入口](https://white-tooth-edcc.bdrjrssdr4.workers.dev/-----https://662.nhhc.com.au)
+### [新唐人高速入口](https://bold-sea-8e40.bdrjrssdr4.workers.dev/-----https://662.nhhc.com.au)
 
-### [大纪元高速入口](https://white-tooth-edcc.bdrjrssdr4.workers.dev/-----https://662.nhhc.com.au)
+### [大纪元高速入口](https://bold-sea-8e40.bdrjrssdr4.workers.dev/-----https://662.nhhc.com.au)
 
-### [退党网高速入口](https://white-tooth-edcc.bdrjrssdr4.workers.dev/-----https://662.nhhc.com.au)
+### [退党网高速入口](https://bold-sea-8e40.bdrjrssdr4.workers.dev/-----https://662.nhhc.com.au)
 
 
 
