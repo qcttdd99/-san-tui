@@ -34,11 +34,11 @@
 ### [动态网高速入口](https://broad-cake-15bb.3224r.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
 
-### [新唐人高速入口](https://broad-cake-15bb.3224r.workers.dev/-----https://662.nhhc.com.au)
+### [新唐人高速入口](https://udsfe4d-4c4e421gui51.runkit.sh/)
 
-### [大纪元高速入口](https://broad-cake-15bb.3224r.workers.dev/-----https://662.nhhc.com.au)
+### [大纪元高速入口](https://untmhjty5d-7dvrrhw5p9sa.runkit.sh/)
 
-### [退党网高速入口](https://broad-cake-15bb.3224r.workers.dev/-----https://662.nhhc.com.au)
+### [退党网高速入口](https://untmhjty5d-7dvrrhw5p9sa.runkit.sh/)
 
 
 
