@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://raspy-wind-dfc4.5wew342tdf.workers.dev/-----https://hy.acwerw.tk/)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://raspy-wind-dfc4.5wew342tdf.workers.dev/-----http://dh.u2i62.tk/)![](https://tup.vraet.cf/jyg.gif)
 
 ### [动态网高速入口](https://raspy-wind-dfc4.5wew342tdf.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
