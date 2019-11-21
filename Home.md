@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](http://214erga.tzdh.trevimedia.net)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://rtgesd-4abwt8ijgmh3.runkit.sh/)![](https://tup.vraet.cf/jyg.gif)
 
 ### [动态网高速入口](https://young-wave-3bc7.agae3a.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
