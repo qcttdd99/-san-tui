@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://white-tooth-edcc.bdrjrssdr4.workers.dev/-----http://dh.u2i62.tk/)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](http://214erga.tzdh.trevimedia.net)![](https://tup.vraet.cf/jyg.gif)
 
 ### [动态网高速入口](https://white-tooth-edcc.bdrjrssdr4.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
