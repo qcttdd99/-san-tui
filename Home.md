@@ -31,6 +31,8 @@
 
 ### [聚缘阁禁闻导航](https://6juyhd-9wfi6cc96xkl.runkit.sh/)![](https://tup.vraet.cf/jyg.gif)
 
+### [聚缘阁禁闻导航](https://little-sea-83fe.4343f.workers.dev/-----https://dh.1fgheh.ga/)![](https://tup.vraet.cf/jyg.gif)
+
 ### [动态网高速入口](https://little-sea-83fe.4343f.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
 
