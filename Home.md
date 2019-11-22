@@ -29,9 +29,9 @@
 
 
 
-### [聚缘阁禁闻导航](https://r296638d-4abwt8ijgmh3.runkit.sh/)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://r296ee638d-4abwt8ijgmh3.runkit.sh/)![](https://tup.vraet.cf/jyg.gif)
 
-### [动态网高速入口](https://super-poetry-ecdf.eeww432.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
+### [动态网高速入口](https://shy-shadow-c106.4bgwewhr4hdes.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
 
 
 ### [新唐人高速入口](https://shy-shadow-c106.4bgwewhr4hdes.workers.dev/-----https://662.nhhc.com.au)
