@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://6j9eeeehd-9wfi6cc96xkl.runkit.sh/)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](http://ee44ra2.h5a.hyundai-cme.net/)![](https://tup.vraet.cf/jyg.gif)
 
 ### [聚缘阁禁闻导航](https://muddy-art-45e2.heews.workers.dev/-----https://dh.1fgheh.ga/)![](https://tup.vraet.cf/jyg.gif)
 
