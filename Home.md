@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://cold-sunset-4348.rew43fsa.workers.dev/-----http://eewwea2.h5a.hyundai-cme.net/)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](http://335ty3.h5a.hyundai-cme.net)![](https://tup.vraet.cf/jyg.gif)
 
 
 
