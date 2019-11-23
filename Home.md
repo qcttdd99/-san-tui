@@ -33,14 +33,14 @@
 
 
 
-### [动态网高速入口](https://throbbing-glade-909e.lian.workers.dev/-----https://662.nhhc.com.au)![](https://tup.vraet.cf/jygdl.gif)
+### [动态网高速入口](https://throbbing-glade-909e.lian.workers.dev/-----http://hao149.ie99.eu.org/)![](https://tup.vraet.cf/jygdl.gif)
 
 
-### [新唐人高速入口](https://throbbing-glade-909e.lian.workers.dev/-----https://662.nhhc.com.au)
+### [新唐人高速入口](https://throbbing-glade-909e.lian.workers.dev/-----http://hao149.ie99.eu.org/)
 
-### [大纪元高速入口](https://throbbing-glade-909e.lian.workers.dev/-----https://662.nhhc.com.au)
+### [大纪元高速入口](https://throbbing-glade-909e.lian.workers.dev/-----http://hao149.ie99.eu.org/)
 
-### [退党网高速入口](https://throbbing-glade-909e.lian.workers.dev/-----https://662.nhhc.com.au)
+### [退党网高速入口](https://throbbing-glade-909e.lian.workers.dev/-----http://hao149.ie99.eu.org/)
 
 
 
