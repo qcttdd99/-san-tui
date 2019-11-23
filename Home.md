@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](http://356dd3r3.h5a.hyundai-cme.net)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](http://35mnj3.h5a.hyundai-cme.net)![](https://tup.vraet.cf/jyg.gif)
 
 
 
