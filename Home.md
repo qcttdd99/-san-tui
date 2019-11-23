@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://6j999hd-9wfi6cc96xkl.runkit.sh/)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://6j9eeehd-9wfi6cc96xkl.runkit.sh/)![](https://tup.vraet.cf/jyg.gif)
 
 ### [聚缘阁禁闻导航](https://little-sea-83fe.4343f.workers.dev/-----https://dh.1fgheh.ga/)![](https://tup.vraet.cf/jyg.gif)
 
