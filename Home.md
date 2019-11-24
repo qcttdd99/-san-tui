@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://ed.zb76f.club)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://5are.fve75.club/)![](https://tup.vraet.cf/jyg.gif)
 
 
 
