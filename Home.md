@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://tiny-bird-3b1c.2544lo9.workers.dev/-----http://dhtz.juyuange.eu.org/)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://123.fusyb.xyz)![](https://tup.vraet.cf/jyg.gif)
 
 
 
