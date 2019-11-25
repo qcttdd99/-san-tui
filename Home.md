@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://summer-shadow-e6be.gsre453d.workers.dev)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://tiny-bird-3b1c.2544lo9.workers.dev/-----http://dhtz.juyuange.eu.org/)![](https://tup.vraet.cf/jyg.gif)
 
 
 
