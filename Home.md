@@ -29,11 +29,11 @@
 
 
 
-### [聚缘阁禁闻导航](https://123.fusyb.xyz)![](https://tup.vraet.cf/jyg.gif)
+### [聚缘阁禁闻导航](https://123.fusyb.xyz)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 
-### [动态网高速入口](https://cold-sunset-4348.rew43fsa.workers.dev/-----http://hao149.ie99.eu.org/)![](https://tup.vraet.cf/jygdl.gif)
+### [动态网高速入口](https://cold-sunset-4348.rew43fsa.workers.dev/-----http://hao149.ie99.eu.org/)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 ### [新唐人高速入口](https://cold-sunset-4348.rew43fsa.workers.dev/-----http://hao149.ie99.eu.org/)
