@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://g55t.erewygre.workers.dev/-----http://hao149.ie99.eu.org/)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁禁闻导航](https://f6g32szb5l.execute-api.ap-east-1.amazonaws.com/lin1)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 
