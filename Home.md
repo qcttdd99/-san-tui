@@ -33,7 +33,7 @@
 
 
 
-### [动态网高速入口](https://g55t.erewygre.workers.dev/-----http://hao149.ie99.eu.org/)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://f9oj42j1tf.execute-api.ap-east-1.amazonaws.com/de)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 ### [新唐人高速入口](https://g55t.erewygre.workers.dev/-----http://hao149.ie99.eu.org/)
