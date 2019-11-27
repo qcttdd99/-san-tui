@@ -36,9 +36,11 @@
 ### [动态网高速入口](https://f9oj42j1tf.execute-api.ap-east-1.amazonaws.com/de)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](https://g4sdmnw3le.execute-api.ap-northeast-2.amazonaws.com/reg)
+### [新唐人高速入口](https://winter-sea-4924.rwyw43.workers.dev/-----http://wh.jyg7.eu.org/?id=5)
 
-### [大纪元高速入口](https://g4sdmnw3le.execute-api.ap-northeast-2.amazonaws.com/reg)
+### [大纪元高速入口](https://winter-sea-4924.rwyw43.workers.dev/-----http://wh.jyg7.eu.org/?id=7)
+
+### [退党网高速入口](https://winter-sea-4924.rwyw43.workers.dev/-----http://wh.jyg7.eu.org/?id=8)
 
 ### [退党网高速入口](https://g4sdmnw3le.execute-api.ap-northeast-2.amazonaws.com/reg)
 
