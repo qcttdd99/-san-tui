@@ -39,9 +39,9 @@
 
 ### [大纪元高速入口](https://wha.zb76f.xyz/hswow/7)
 
-### [明慧网高速入口](https://wha.zb76f.xyz/haow/5d43/3)
+### [明慧网高速入口](https://wha.zb76f.xyz/haow/3)
 
-### [退党网高速入口](https://wha.zb76f.xyz/haow/5d43/8)
+### [退党网高速入口](https://wha.zb76f.xyz/haow/8)
 
 
 
