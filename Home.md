@@ -29,7 +29,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://f6g32szb5l.execute-api.ap-east-1.amazonaws.com/lin1)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁禁闻导航](https://dh.zb76f.xyz/)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [聚缘阁高速入口](https://dpn7y1d1ie.execute-api.ap-northeast-2.amazonaws.com/jt)
 
