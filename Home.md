@@ -30,10 +30,10 @@
 
 
 
-### [动态网高速入口](https://f9oj42j1tf.execute-api.ap-east-1.amazonaws.com/de)![]
-(https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://enfnf5iez9.execute-api.ap-east-1.amazonaws.com/jyg)![](http://tupian.425e.eu.org/jygdl.gif)
 
 ### [聚缘阁禁闻导航](https://f6g32szb5l.execute-api.ap-east-1.amazonaws.com/dhao)![](http://tupian.425e.eu.org/jyg.gif)
+
 
 ### [新唐人高速入口](https://wha.zb76f.xyz/haow/5)
 
