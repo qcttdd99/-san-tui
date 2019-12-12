@@ -35,13 +35,13 @@
 ### [聚缘阁禁闻导航](https://f6g32szb5l.execute-api.ap-east-1.amazonaws.com/dhao)![](http://tupian.425e.eu.org/jyg.gif)
 
 
-### [新唐人高速入口](https://tfp5p7dvc2.execute-api.ap-northeast-2.amazonaws.com/wh/)
+### [新唐人高速入口](https://dz2ik1bbma.execute-api.ap-southeast-1.amazonaws.com/wh9)
 
-### [大纪元高速入口](https://tfp5p7dvc2.execute-api.ap-northeast-2.amazonaws.com/wh/)
+### [大纪元高速入口](https://dz2ik1bbma.execute-api.ap-southeast-1.amazonaws.com/wh9)
 
-### [明慧网高速入口](https://tfp5p7dvc2.execute-api.ap-northeast-2.amazonaws.com/wh/)
+### [明慧网高速入口](https://dz2ik1bbma.execute-api.ap-southeast-1.amazonaws.com/wh9)
 
-### [退党网高速入口](https://tfp5p7dvc2.execute-api.ap-northeast-2.amazonaws.com/wh/)
+### [退党网高速入口](https://dz2ik1bbma.execute-api.ap-southeast-1.amazonaws.com/wh9)
 
 
 
