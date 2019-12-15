@@ -32,7 +32,7 @@
 
 ### [动态网高速入口](https://enfnf5iez9.execute-api.ap-east-1.amazonaws.com/jyg)![](http://tupian.425e.eu.org/jygdl.gif)
 
-### [聚缘阁禁闻导航](https://f6g32szb5l.execute-api.ap-east-1.amazonaws.com/dhao)![](http://tupian.425e.eu.org/jyg.gif)
+### [聚缘阁禁闻导航](https://0genqpcaj9.execute-api.ap-east-1.amazonaws.com/dhtz)![](http://tupian.425e.eu.org/jyg.gif)
 
 
 ### [新唐人高速入口](https://dz2ik1bbma.execute-api.ap-southeast-1.amazonaws.com/wh9)
