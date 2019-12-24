@@ -30,18 +30,18 @@
 
 
 
-### [动态网高速入口](https://g2.b82ka.club/)![](http://tupian.425e.eu.org/jygdl.gif)
+### [动态网高速入口](https://bbsodxr061.execute-api.ap-east-1.amazonaws.com/g2)![](http://tupian.425e.eu.org/jygdl.gif)
 
 ### [聚缘阁禁闻导航](https://f6g32szb5l.execute-api.ap-east-1.amazonaws.com/ww3)![](http://tupian.425e.eu.org/jyg.gif)
 
 
-### [新唐人高速入口](https://g2.b82ka.club/)
+### [新唐人高速入口](https://bbsodxr061.execute-api.ap-east-1.amazonaws.com/g2)
 
-### [大纪元高速入口](https://g2.b82ka.club/)
+### [大纪元高速入口](https://bbsodxr061.execute-api.ap-east-1.amazonaws.com/g2)
 
-### [明慧网高速入口](https://g2.b82ka.club/)
+### [明慧网高速入口](https://bbsodxr061.execute-api.ap-east-1.amazonaws.com/g2)
 
-### [退党网高速入口](https://eqdmw7hb50.execute-api.ap-east-1.amazonaws.com/g2)
+### [退党网高速入口](https://bbsodxr061.execute-api.ap-east-1.amazonaws.com/g2)
 
 
 
