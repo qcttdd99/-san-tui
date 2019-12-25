@@ -30,18 +30,18 @@
 
 
 
-### [动态网高速入口](https://y28satln25.execute-api.ap-northeast-1.amazonaws.com/66)![](http://tupian.425e.eu.org/jygdl.gif)
+### [动态网高速入口](https://92rqe877vf.execute-api.ap-east-1.amazonaws.com/go2)![](http://tupian.425e.eu.org/jygdl.gif)
 
 ### [聚缘阁禁闻导航](https://y28satln25.execute-api.ap-northeast-1.amazonaws.com/66)![](http://tupian.425e.eu.org/jyg.gif)
 
 
-### [新唐人高速入口](https://58q4zx6o08.execute-api.ap-east-1.amazonaws.com/g2er)
+### [新唐人高速入口](https://92rqe877vf.execute-api.ap-east-1.amazonaws.com/go2)
 
-### [大纪元高速入口](https://58q4zx6o08.execute-api.ap-east-1.amazonaws.com/g2er)
+### [大纪元高速入口](https://92rqe877vf.execute-api.ap-east-1.amazonaws.com/go2)
 
-### [明慧网高速入口](https://hj2utl5595.execute-api.ap-east-1.amazonaws.com/g2w)
+### [明慧网高速入口](https://92rqe877vf.execute-api.ap-east-1.amazonaws.com/go2)
 
-### [退党网高速入口](https://58q4zx6o08.execute-api.ap-east-1.amazonaws.com/g2er)
+### [退党网高速入口](https://92rqe877vf.execute-api.ap-east-1.amazonaws.com/go2)
 
 
 
