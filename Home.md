@@ -30,7 +30,7 @@
 
 
 
-### [动态网高速入口](https://189rbmbmh1.execute-api.ap-east-1.amazonaws.com/vv2)![](http://tupian.425e.eu.org/jygdl.gif)
+### [动态网高速入口](https://w6mgrpi724.execute-api.ap-northeast-1.amazonaws.com/lin1)![](http://tupian.425e.eu.org/jygdl.gif)
 
 ### [聚缘阁禁闻导航](https://w6mgrpi724.execute-api.ap-northeast-1.amazonaws.com/lin1)![](http://tupian.425e.eu.org/jyg.gif)
 
