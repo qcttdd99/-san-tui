@@ -45,7 +45,7 @@
 
 ### [法轮大法网高速入口](https://5a.59uap.xyz/hgfff/15)
 
-### [美国之音高速入口](https://5a.59uap.xyz/hgfff/18)
+### [美国之音网高速入口](https://5a.59uap.xyz/hgfff/18)
 
 
 
