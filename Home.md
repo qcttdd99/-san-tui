@@ -34,7 +34,7 @@
 
 ### [聚缘阁禁闻导航](https://083z9s2fs8.execute-api.ap-northeast-2.amazonaws.com/2)![](http://tupian.425e.eu.org/jyg.gif)
 
-### [SSL高速入口](https://6ff60uu94m.execute-api.ap-northeast-1.amazonaws.com/1)
+### [SSL高速入口](https://6ff60uu94m.execute-api.ap-northeast-1.amazonaws.com/1)[弹出的有效网址请收藏备用]
 
 
 ### [新唐人高速入口](https://5a.59uap.xyz/hgfff/5)
