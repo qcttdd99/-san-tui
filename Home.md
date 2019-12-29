@@ -30,26 +30,22 @@
 
 
 
-### [动态网高速入口](https://5a.59uap.xyz/hgfff/254)![](http://tupian.425e.eu.org/jygdl.gif)
+### [动态网高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)![](http://tupian.425e.eu.org/jygdl.gif)
 
-### [聚缘阁高速入口](https://g5qmc0k261.execute-api.ap-northeast-2.amazonaws.com/k)
 
 ### [聚缘阁禁闻导航](https://083z9s2fs8.execute-api.ap-northeast-2.amazonaws.com/2)![](http://tupian.425e.eu.org/jyg.gif)
 
-### [SSL高速入口](https://6ff60uu94m.execute-api.ap-northeast-1.amazonaws.com/1)
 
 
-### [新唐人高速入口](https://5a.59uap.xyz/hgfff/5)
 
-### [大纪元高速入口](https://5a.59uap.xyz/hgfff/7)
+### [新唐人高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
 
-### [明慧网高速入口](https://5a.59uap.xyz/hgfff/3)
+### [大纪元高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
 
-### [退党网高速入口](https://5a.59uap.xyz/hgfff/8)
+### [明慧网高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
 
-### [法轮大法网高速入口](https://5a.59uap.xyz/hgfff/15)
+### [退党网高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
 
-### [美国之音网高速入口](https://5a.59uap.xyz/hgfff/18)
 
 
 
