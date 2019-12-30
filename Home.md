@@ -32,6 +32,8 @@
 
 ### [动态网高速入口](http://5a.59uap.xyz/eerw/505)![](http://tupian.425e.eu.org/jygdl.gif)
 
+### [聚缘阁高速入口](https://jt7.weihu.gq)![](http://tupian.425e.eu.org/jyg.gif)
+
 
 ### [聚缘阁禁闻导航](https://083z9s2fs8.execute-api.ap-northeast-2.amazonaws.com/2)![](http://tupian.425e.eu.org/jyg.gif)
 
@@ -45,6 +47,11 @@
 ### [明慧网高速入口](http://5a.59uap.xyz/eerw/3)
 
 ### [退党网高速入口](http://5a.59uap.xyz/eerw/8)
+
+### [法轮大法网高速入口](http://5a.59uap.xyz/eerw/15)
+
+### [美国之音网高速入口](http://5a.59uap.xyz/eerw/18)
+
 
 
 
