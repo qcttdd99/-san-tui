@@ -38,9 +38,9 @@
 
 
 
-### [新唐人高速入口](https://g66.zb76f.xyz/)
+### [新唐人高速入口](http://5a.59uap.xyz/eerw/5)
 
-### [大纪元高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
+### [大纪元高速入口](http://5a.59uap.xyz/eerw/7)
 
 ### [明慧网高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
 
