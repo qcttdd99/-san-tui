@@ -42,9 +42,9 @@
 
 ### [大纪元高速入口](http://5a.59uap.xyz/eerw/7)
 
-### [明慧网高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
+### [明慧网高速入口](http://5a.59uap.xyz/eerw/3)
 
-### [退党网高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
+### [退党网高速入口](http://5a.59uap.xyz/eerw/8)
 
 
 
