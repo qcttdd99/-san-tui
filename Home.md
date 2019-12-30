@@ -38,7 +38,7 @@
 
 
 
-### [新唐人高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
+### [新唐人高速入口](https://g66.zb76f.xyz/)
 
 ### [大纪元高速入口](https://kl2tjthgx7.execute-api.ap-east-1.amazonaws.com/fseew)
 
