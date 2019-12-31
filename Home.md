@@ -40,7 +40,7 @@
 
 
 
-### [新唐人高速入口](http://5a.59uap.xyz/eerw/5)
+### [新唐人高速入口](http://hua.vcfkoo.ga/hua/5)
 
 ### [大纪元高速入口](http://5a.59uap.xyz/eerw/7)
 
