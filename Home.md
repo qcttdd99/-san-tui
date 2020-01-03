@@ -28,7 +28,7 @@
 ## 聚缘阁翻墙代理 
 
 
-### [动态网高速入口](http://3r654.sa.sellusedlaptopz.com/eerw/505)![](http://tupian.425e.eu.org/jygdl.gif)
+### [动态网高速入口](http://wage.sa.sellusedlaptopz.com/eerw/505)![](http://tupian.425e.eu.org/jygdl.gif)
 
 ### [聚缘阁高速入口](http://584.vhfsa.xyz/)![](http://tupian.425e.eu.org/jyg.gif)
 
@@ -38,17 +38,17 @@
 
 
 
-### [新唐人高速入口](http://3r654.sa.sellusedlaptopz.com/eerw/5)
+### [新唐人高速入口](http://wage.sa.sellusedlaptopz.com/eerw/5)
 
-### [大纪元高速入口](http://3r654.sa.sellusedlaptopz.com/eerw/7)
+### [大纪元高速入口](http://wage.sa.sellusedlaptopz.com/eerw/7)
 
-### [明慧网高速入口](http://3r654.sa.sellusedlaptopz.com/eerw/3)
+### [明慧网高速入口](http://wage.sa.sellusedlaptopz.com/eerw/3)
 
-### [退党网高速入口](http://3r654.sa.sellusedlaptopz.com/eerw/8)
+### [退党网高速入口](http://wage.sa.sellusedlaptopz.com/eerw/8)
 
-### [法轮大法网高速入口](http://3r654.sa.sellusedlaptopz.com/eerw/15)
+### [法轮大法网高速入口](http://wage.sa.sellusedlaptopz.com/eerw/15)
 
-### [美国之音网高速入口](http://3r654.sa.sellusedlaptopz.com/eerw/18)
+### [美国之音网高速入口](http://wage.sa.sellusedlaptopz.com/eerw/18)
 
 
 
