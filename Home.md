@@ -33,7 +33,7 @@
 ### [聚缘阁高速入口](http://584.vhfsa.xyz/)![](http://tupian.425e.eu.org/jyg.gif)
 
 
-### [聚缘阁禁闻导航](https://1o57m3b90i.execute-api.ap-east-1.amazonaws.com/dha)![](http://tupian.425e.eu.org/jyg.gif)
+### [聚缘阁禁闻导航](https://v152druu68.execute-api.ap-northeast-1.amazonaws.com/vs)![](http://tupian.425e.eu.org/jyg.gif)
 
 
 
