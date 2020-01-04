@@ -30,7 +30,7 @@
 
 ### [动态网高速入口](http://wage.sa.sellusedlaptopz.com/eerw/505)![](http://tupian.425e.eu.org/jygdl.gif)
 
-### [聚缘阁高速入口](http://584.vhfsa.xyz/)![](http://tupian.425e.eu.org/jyg.gif)
+### [聚缘阁高速入口](https://mnpyfw0j09.execute-api.ap-southeast-1.amazonaws.com/j)![](http://tupian.425e.eu.org/jyg.gif)
 
 
 ### [聚缘阁禁闻导航](https://v152druu68.execute-api.ap-northeast-1.amazonaws.com/vs)![](http://tupian.425e.eu.org/jyg.gif)
