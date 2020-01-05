@@ -28,7 +28,7 @@
 ## 聚缘阁翻墙代理 
 
 
-### [动态网高速入口](http://wage.sa.sellusedlaptopz.com/eerw/505)![](http://tupian.425e.eu.org/jygdl.gif)
+### [动态网高速入口](http://wage.sa.sellusedlaptopz.com/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [聚缘阁视频网站](https://tu30cpcu9h.execute-api.ap-northeast-1.amazonaws.com/tv)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
