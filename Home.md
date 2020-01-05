@@ -30,12 +30,12 @@
 
 ### [动态网高速入口](http://wage.sa.sellusedlaptopz.com/eerw/505)![](http://tupian.425e.eu.org/jygdl.gif)
 
-### [聚缘阁视频网站](https://tu30cpcu9h.execute-api.ap-northeast-1.amazonaws.com/tv)![](http://tupian.425e.eu.org/jyg.gif)
+### [聚缘阁视频网站](https://tu30cpcu9h.execute-api.ap-northeast-1.amazonaws.com/tv)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [聚缘阁高速入口](https://mnpyfw0j09.execute-api.ap-southeast-1.amazonaws.com/j)![](http://tupian.425e.eu.org/jyg.gif)
+### [聚缘阁高速入口](https://mnpyfw0j09.execute-api.ap-southeast-1.amazonaws.com/j)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
-### [聚缘阁禁闻导航](https://v152druu68.execute-api.ap-northeast-1.amazonaws.com/vs)![](http://tupian.425e.eu.org/jyg.gif)
+### [聚缘阁禁闻导航](https://v152druu68.execute-api.ap-northeast-1.amazonaws.com/vs)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 
