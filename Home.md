@@ -35,7 +35,7 @@
 ### [聚缘阁高速入口](https://mnpyfw0j09.execute-api.ap-southeast-1.amazonaws.com/j)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
-### [聚缘阁禁闻导航](https://v152druu68.execute-api.ap-northeast-1.amazonaws.com/vs)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁禁闻导航](https://9iluo3w0x2.execute-api.ap-northeast-1.amazonaws.com/l99)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 
