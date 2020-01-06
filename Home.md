@@ -32,7 +32,7 @@
 
 ### [聚缘阁视频网站](https://tu30cpcu9h.execute-api.ap-northeast-1.amazonaws.com/tv)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [聚缘阁高速入口](https://mnpyfw0j09.execute-api.ap-southeast-1.amazonaws.com/j)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁高速入口](https://jyg3.y4n29.club/)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 ### [聚缘阁禁闻导航](https://9iluo3w0x2.execute-api.ap-northeast-1.amazonaws.com/l99)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
