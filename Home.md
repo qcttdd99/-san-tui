@@ -34,6 +34,8 @@
 
 ### [聚缘阁禁闻导航](http://254.kdh934.kornet.co)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
+### [聚缘阁高速入口](http://jtz248.vwertg.ga)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+
 
 
 
