@@ -32,7 +32,7 @@
 
 
 
-### [聚缘阁禁闻导航](https://kbt2pv5m7l.execute-api.ap-northeast-1.amazonaws.com/vdse)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁禁闻导航](http://254.kdh934.kornet.co)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 
 
