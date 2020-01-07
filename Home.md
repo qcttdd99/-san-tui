@@ -30,9 +30,6 @@
 
 ### [动态网高速入口](http://wage2.sa.sellusedlaptopz.com/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [聚缘阁视频网站](https://gk3md8dlpi.execute-api.ap-northeast-1.amazonaws.com/vcg)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
-
-### [聚缘阁高速入口](https://jn6ai4a9hi.execute-api.ap-northeast-1.amazonaws.com/df)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 
 ### [聚缘阁禁闻导航](https://9iluo3w0x2.execute-api.ap-northeast-1.amazonaws.com/l99)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
