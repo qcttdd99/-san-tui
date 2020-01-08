@@ -29,6 +29,8 @@
 
 ### [聚缘阁禁闻导航](https://qetm3963v9.execute-api.ap-northeast-1.amazonaws.com/dee)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
+### [聚缘阁加密入口](http://32a.hao123.hschnet.de)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+
 ### [动态网高速入口](http://44rtw3.pa.psychoticgerbil.com/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [动态网加密入口](http://ewwe.g2.zb76f.club/2547/513)
