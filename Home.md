@@ -31,6 +31,8 @@
 
 ### [动态网高速入口](http://44rtw3.pa.psychoticgerbil.com/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [https高速入口](http://ewwe.g2.zb76f.club/)
+
 
 
 ### [新唐人高速入口](http://44rtw3.pa.psychoticgerbil.com/eerw/5)
