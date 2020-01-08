@@ -28,7 +28,7 @@
 ## 聚缘阁翻墙代理 
 
 
-### [动态网高速入口](http://44rtw.pa.psychoticgerbil.comm/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://44rtw.pa.psychoticgerbil.com/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
