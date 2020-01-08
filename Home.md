@@ -29,7 +29,7 @@
 
 ### [聚缘阁禁闻导航](https://qetm3963v9.execute-api.ap-northeast-1.amazonaws.com/dee)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [聚缘阁加密入口](https://qlerhn0x1m.execute-api.ap-northeast-1.amazonaws.com/247)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+### [聚缘阁加密入口](http://cfg.contra-bit.com)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
 ### [动态网高速入口](http://44rtw3.pa.psychoticgerbil.com/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
