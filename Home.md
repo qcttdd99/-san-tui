@@ -32,13 +32,6 @@
 
 
 
-### [聚缘阁禁闻导航](http://254.kdh934.kornet.co)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
-
-### [聚缘阁高速入口](http://jtz248.vwertg.ga)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
-
-
-### [聚缘阁视频网站](https://qu99wi35bi.execute-api.ap-northeast-1.amazonaws.com/jygtv)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
-
 ### [新唐人高速入口](http://w3egsa3.sb.sellusedlaptopz.com/eerw/5)
 
 ### [大纪元高速入口](http://w3egsa3.sb.sellusedlaptopz.com/eerw/7)
