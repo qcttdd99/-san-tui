@@ -28,21 +28,21 @@
 ## 聚缘阁翻墙代理 
 
 
-### [动态网高速入口](http://w3egsa3.sb.sellusedlaptopz.com/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://w3egsa3.sb1.sellusedlaptopz.com/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
-### [新唐人高速入口](http://w6954.sb.sellusedlaptopz.com/eerw/5)
+### [新唐人高速入口](http://w6954.sb1.sellusedlaptopz.com/eerw/5)
 
-### [大纪元高速入口](http://w6954.sb.sellusedlaptopz.com/eerw/7)
+### [大纪元高速入口](http://w6954.sb1.sellusedlaptopz.com/eerw/7)
 
-### [明慧网高速入口](http://w6954.sb.sellusedlaptopz.com/eerw/3)
+### [明慧网高速入口](http://w6954.sb1.sellusedlaptopz.com/eerw/3)
 
-### [退党网高速入口](http://w6954.sb.sellusedlaptopz.com/eerw/8)
+### [退党网高速入口](http://w6954.sb1.sellusedlaptopz.com/eerw/8)
 
-### [法轮大法网高速入口](http://w6954.sb.sellusedlaptopz.com/eerw/15)
+### [法轮大法网高速入口](http://w6954.sb1.sellusedlaptopz.com/eerw/15)
 
-### [美国之音网高速入口](http://w6954.sb.sellusedlaptopz.com/eerw/18)
+### [美国之音网高速入口](http://w6954.sb1.sellusedlaptopz.com/eerw/18)
 
 
 
