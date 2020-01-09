@@ -29,23 +29,19 @@
 
 
 
-### [动态网高速入口](http://44rtw3a.pa.psychoticgerbil.com/eerw/505)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://er2.bmvl.ru/12587/585)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [新唐人高速入口](http://er2.bmvl.ru/12587/5)
 
+### [大纪元高速入口](http://er2.bmvl.ru/12587/7)
 
+### [明慧网高速入口](http://er2.bmvl.ru/12587/3)
 
-### [新唐人高速入口](http://44rtw3a.pa.psychoticgerbil.com/eerw/5)
+### [退党网高速入口](http://er2.bmvl.ru/12587/8)
 
-### [大纪元高速入口](http://44rtw3a.pa.psychoticgerbil.com/eerw/7)
+### [法轮大法网高速入口](http://er2.bmvl.ru/12587/15)
 
-### [明慧网高速入口](http://44rtw3a.pa.psychoticgerbil.com/eerw/3)
-
-### [退党网高速入口](http://44rtw3a.pa.psychoticgerbil.com/eerw/8)
-
-### [法轮大法网高速入口](http://44rtw3a.pa.psychoticgerbil.com/eerw/15)
-
-### [美国之音网高速入口](http://44rtw3a.pa.psychoticgerbil.com/eerw/18)
-
+### [美国之音网高速入口](http://er2.bmvl.ru/12587/18)
 
 
 
