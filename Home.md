@@ -31,6 +31,8 @@
 
 ### [动态网高速入口](http://er2.bmvl.ru/12587/585)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [禁闻网高速入口](http://t.cn/Ais0H8d2)
+
 ### [新唐人高速入口](http://er2.bmvl.ru/12587/5)
 
 ### [大纪元高速入口](http://er2.bmvl.ru/12587/7)
