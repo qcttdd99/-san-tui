@@ -29,21 +29,21 @@
 
 ### [聚缘阁禁闻导航](https://7nkkcawz39.execute-api.ap-northeast-1.amazonaws.com/2547)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](http://er2.bmvl.ru/12587/585)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](https://er2.bmvl.ru/12587/585)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [禁闻网高速入口](http://t.cn/Ais0H8d2)
 
-### [新唐人高速入口](http://er2.bmvl.ru/12587/5)
+### [新唐人高速入口](https://er2.bmvl.ru/12587/5)
 
-### [大纪元高速入口](http://er2.bmvl.ru/12587/7)
+### [大纪元高速入口](https://er2.bmvl.ru/12587/7)
 
-### [明慧网高速入口](http://er2.bmvl.ru/12587/3)
+### [明慧网高速入口](https://er2.bmvl.ru/12587/3)
 
-### [退党网高速入口](http://er2.bmvl.ru/12587/8)
+### [退党网高速入口](https://er2.bmvl.ru/12587/8)
 
-### [法轮大法网高速入口](http://er2.bmvl.ru/12587/15)
+### [法轮大法网高速入口](https://er2.bmvl.ru/12587/15)
 
-### [美国之音网高速入口](http://er2.bmvl.ru/12587/18)
+### [美国之音网高速入口](https://er2.bmvl.ru/12587/18)
 
 
 
