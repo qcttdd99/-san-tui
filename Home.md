@@ -29,23 +29,22 @@
 
 ### [聚缘阁禁闻导航](https://que3gpjlc6.execute-api.ap-northeast-1.amazonaws.com/55)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](https://skl6sh36ji.execute-api.ap-northeast-1.amazonaws.com/254)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
-
-### [禁闻网高速入口](http://t.cn/Ais0H8d2)
-
-### [新唐人高速入口](https://skl6sh36ji.execute-api.ap-northeast-1.amazonaws.com/254)
-
-### [大纪元高速入口](https://skl6sh36ji.execute-api.ap-northeast-1.amazonaws.com/254)
-
-### [明慧网高速入口](https://skl6sh36ji.execute-api.ap-northeast-1.amazonaws.com/254)
-
-### [退党网高速入口](https://er2.bmvl.ru/12587/8)
-
-### [法轮大法网高速入口](https://skl6sh36ji.execute-api.ap-northeast-1.amazonaws.com/254)
-
-### [美国之音网高速入口](https://skl6sh36ji.execute-api.ap-northeast-1.amazonaws.com/254)
+### [动态网高速入口](http://g2.contra-bit.com/254/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
+### [禁闻网高速入口](https://t.cn/Ais0H8d2)
+
+### [新唐人高速入口](http://g2.contra-bit.com/254/5)
+
+### [大纪元高速入口](http://g2.contra-bit.com/254/7)
+
+### [明慧网高速入口](http://g2.contra-bit.com/254/3)
+
+### [退党网高速入口](http://g2.contra-bit.com/254/8)
+
+### [法轮大法网高速入口](http://g2.contra-bit.com/254/15)
+
+### [美国之音网高速入口](http://g2.contra-bit.com/254/18)
 
 
 
