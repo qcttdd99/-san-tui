@@ -27,12 +27,15 @@
 
 ## 聚缘阁翻墙代理 
 
+### [聚缘阁高速入口](http://uee.me/cQq7M)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
+
 ### [聚缘阁禁闻导航](https://binorke8bb.execute-api.ap-northeast-1.amazonaws.com/66)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [动态网高速入口](http://496549z.hapi.hschnet.de/324232/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [禁闻网高速入口](http://uee.me/cQpdr)
+### [禁闻网高速入口](http://uee.me/cQpdr)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+
 
 ### [新唐人高速入口](http://496549z.hapi.hschnet.de/324232/5)
 
