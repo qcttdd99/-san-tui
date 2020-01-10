@@ -27,7 +27,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](https://nzee0crcz1.execute-api.ap-northeast-1.amazonaws.com/tg3)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [聚缘阁禁闻导航](https://e28vuwkm2i.execute-api.ap-northeast-1.amazonaws.com/44r)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [动态网高速入口](http://hao3.hg.hemidog.com/254/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
