@@ -32,7 +32,7 @@
 ### [动态网高速入口](http://496549z.hapi.hschnet.de/324232/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-
+### [禁闻网高速入口](http://uee.me/cQpdr)
 
 ### [新唐人高速入口](http://496549z.hapi.hschnet.de/324232/5)
 
