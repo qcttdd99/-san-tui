@@ -29,22 +29,22 @@
 
 ### [聚缘阁禁闻导航](https://e28vuwkm2i.execute-api.ap-northeast-1.amazonaws.com/44r)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](http://496549.hapi.hschnet.de/324232/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://496549z.hapi.hschnet.de/324232/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
 
-### [新唐人高速入口](http://496549.hapi.hschnet.de/324232/5)
+### [新唐人高速入口](http://496549z.hapi.hschnet.de/324232/5)
 
-### [大纪元高速入口](http://496549.hapi.hschnet.de/324232/7)
+### [大纪元高速入口](http://496549z.hapi.hschnet.de/324232/7)
 
-### [明慧网高速入口](http://496549.hapi.hschnet.de/324232/3)
+### [明慧网高速入口](http://496549z.hapi.hschnet.de/324232/3)
 
-### [退党网高速入口](http://496549.hapi.hschnet.de/324232/8)
+### [退党网高速入口](http://496549z.hapi.hschnet.de/324232/8)
 
-### [法轮大法网高速入口](http://496549.hapi.hschnet.de/324232/15)
+### [法轮大法网高速入口](http://496549z.hapi.hschnet.de/324232/15)
 
-### [美国之音网高速入口](http://496549.hapi.hschnet.de/324232/18)
+### [美国之音网高速入口](http://496549z.hapi.hschnet.de/324232/18)
 
 
 
