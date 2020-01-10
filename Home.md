@@ -27,7 +27,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](https://e28vuwkm2i.execute-api.ap-northeast-1.amazonaws.com/44r)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [聚缘阁禁闻导航](https://binorke8bb.execute-api.ap-northeast-1.amazonaws.com/66)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [动态网高速入口](http://496549z.hapi.hschnet.de/324232/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
