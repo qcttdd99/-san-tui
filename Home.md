@@ -34,13 +34,13 @@
 
 
 
-### [新唐人高速入口](http://g2.contra-bit.com/254/5)
+### [新唐人高速入口](http://g2.contra-bit.com/25433/5)
 
-### [大纪元高速入口](http://g2.contra-bit.com/254/7)
+### [大纪元高速入口](http://g2.contra-bit.com/254554/7)
 
-### [明慧网高速入口](http://g2.contra-bit.com/254/3)
+### [明慧网高速入口](http://g2.contra-bit.com/25555444/3)
 
-### [退党网高速入口](http://g2.contra-bit.com/254/8)
+### [退党网高速入口](http://g2.contra-bit.com/244454/8)
 
 ### [法轮大法网高速入口](http://g2.contra-bit.com/254/15)
 
