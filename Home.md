@@ -29,22 +29,22 @@
 
 ### [聚缘阁禁闻导航](https://nzee0crcz1.execute-api.ap-northeast-1.amazonaws.com/tg3)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](http://g2.contra-bit.com/254/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://hao3.hg.hemidog.com/254/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
 
-### [新唐人高速入口](http://g2.contra-bit.com/25433/5)
+### [新唐人高速入口](http://hao3.hg.hemidog.com/25433/5)
 
-### [大纪元高速入口](http://g2.contra-bit.com/254554/7)
+### [大纪元高速入口](http://hao3.hg.hemidog.com/254554/7)
 
-### [明慧网高速入口](http://g2.contra-bit.com/25555444/3)
+### [明慧网高速入口](http://hao3.hg.hemidog.com/25555444/3)
 
-### [退党网高速入口](http://g2.contra-bit.com/244454/8)
+### [退党网高速入口](http://hao3.hg.hemidog.com/244454/8)
 
-### [法轮大法网高速入口](http://g2.contra-bit.com/254/15)
+### [法轮大法网高速入口](http://hao3.hg.hemidog.com/254/15)
 
-### [美国之音网高速入口](http://g2.contra-bit.com/254/18)
+### [美国之音网高速入口](http://hao3.hg.hemidog.com/254/18)
 
 
 
