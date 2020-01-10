@@ -32,7 +32,7 @@
 ### [动态网高速入口](http://g2.contra-bit.com/254/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [禁闻网高速入口](https://t.cn/Ais0H8d2)
+
 
 ### [新唐人高速入口](http://g2.contra-bit.com/254/5)
 
