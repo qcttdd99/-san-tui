@@ -29,7 +29,7 @@
 
 【公告】666个SSL聚缘阁禁网导航网址隆重推出！请收藏备用！
 
-### [禁闻导航SSL网址](https://ac4jwa523f.execute-api.ap-northeast-1.amazonaws.com/655)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [禁闻导航SSL网址](https://binorke8bb.execute-api.ap-northeast-1.amazonaws.com/66)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [聚缘阁高速入口](http://uee.me/cQq7M)![](https://raw.githubusercontent.com/hao369/a/master/jyg.gif)
 
