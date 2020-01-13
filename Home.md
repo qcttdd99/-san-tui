@@ -30,7 +30,7 @@
 
 
 
-### [动态网高速入口](http://496549z.hapi.hschnet.de/324232/2574)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://c45.fun/gH0NqA)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
