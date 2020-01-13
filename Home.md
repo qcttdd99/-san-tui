@@ -36,17 +36,17 @@
 
 
 
-### [新唐人高速入口](http://46yuq.hapi.hschnet.de/324232/5)
+### [新唐人高速入口](http://46yuq.cve.contra-bit.com/324232/5)
 
-### [大纪元高速入口](http://46yuq.hapi.hschnet.de/324232/7)
+### [大纪元高速入口](http://46yuq.cve.contra-bit.com/324232/7)
 
-### [明慧网高速入口](http://46yuq.hapi.hschnet.de/324232/3)
+### [明慧网高速入口](http://46yuq.cve.contra-bit.com/324232/3)
 
-### [退党网高速入口](http://46yuq.hapi.hschnet.de/324232/8)
+### [退党网高速入口](http://46yuq.cve.contra-bit.com/324232/8)
 
-### [法轮大法网高速入口](http://46yuq.hapi.hschnet.de/324232/15)
+### [法轮大法网高速入口](http://46yuq.cve.contra-bit.com/324232/15)
 
-### [美国之音网高速入口](http://46yuq.hapi.hschnet.de/324232/18)
+### [美国之音网高速入口](http://46yuq.cve.contra-bit.com/324232/18)
 
 
 
