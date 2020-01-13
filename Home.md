@@ -30,23 +30,23 @@
 
 
 
-### [动态网高速入口](http://c45.fun/gH0NqA)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://46yu.hapi.hschnet.de/324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
 
 
-### [新唐人高速入口](http://496549ze.hapi.hschnet.de/324232/5)
+### [新唐人高速入口](http://46yu.hapi.hschnet.de/324232/5)
 
-### [大纪元高速入口](http://496549ze.hapi.hschnet.de/324232/7)
+### [大纪元高速入口](http://46yu.hapi.hschnet.de/324232/7)
 
-### [明慧网高速入口](http://496549ze.hapi.hschnet.de/324232/3)
+### [明慧网高速入口](http://46yu.hapi.hschnet.de/324232/3)
 
-### [退党网高速入口](http://496549ze.hapi.hschnet.de/324232/8)
+### [退党网高速入口](http://46yu.hapi.hschnet.de/324232/8)
 
-### [法轮大法网高速入口](http://496549ze.hapi.hschnet.de/324232/15)
+### [法轮大法网高速入口](http://46yu.hapi.hschnet.de/324232/15)
 
-### [美国之音网高速入口](http://496549ze.hapi.hschnet.de/324232/18)
+### [美国之音网高速入口](http://46yu.hapi.hschnet.de/324232/18)
 
 
 
