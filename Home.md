@@ -27,13 +27,13 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](http://uee.me/cQAgc)
+
 
 
 ### [动态网高速入口](http://46yuq.cve.contra-bit.com/324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [禁闻网高速入口](http://uee.me/cQAf9)
+
 
 
 ### [新唐人高速入口](http://46yuq.cve.contra-bit.com/324232/5)
