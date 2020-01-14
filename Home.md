@@ -33,7 +33,7 @@
 ### [动态网高速入口](http://46yuqe2a.cve.contra-bit.com/324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-
+### [禁闻网高速入口](https://40ozpnbtkl.execute-api.ap-northeast-1.amazonaws.com/vc)
 
 
 ### [新唐人高速入口](http://46yuqe2a.cve.contra-bit.com/324232/5)
