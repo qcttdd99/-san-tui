@@ -36,9 +36,9 @@
 
 
 
-### [新唐人高速入口](https://rg5y41quki.execute-api.ap-northeast-1.amazonaws.com/hg)
+### [新唐人高速入口](https://ffiedxkxpl.execute-api.ap-northeast-1.amazonaws.com/2547)
 
-### [大纪元高速入口](https://rg5y41quki.execute-api.ap-northeast-1.amazonaws.com/hg)
+### [大纪元高速入口](https://ffiedxkxpl.execute-api.ap-northeast-1.amazonaws.com/2547)
 
 ### [明慧网高速入口](http://66f3v4.hao.curiousengineer.com/6/4324232/3)
 
