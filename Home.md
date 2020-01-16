@@ -30,21 +30,21 @@
 
 
 
-### [动态网高速入口](http://663v4z3.hao2.curiousengineer.com/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://er32.hao2.curiousengineer.com/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
 
 
-### [新唐人高速入口](http://66f3v4z3.hao2.curiousengineer.com/6/4324232/5)
+### [新唐人高速入口](http://er32.hao2.curiousengineer.com/6/4324232/5)
 
-### [大纪元高速入口](http://66f3v4z3.hao2.curiousengineer.com/6/4324232/7)
+### [大纪元高速入口](http://er32.hao2.curiousengineer.com/6/4324232/7)
 
-### [明慧网高速入口](http://66f3v4z3.hao2.curiousengineer.com/6/4324232/3)
+### [明慧网高速入口](http://er32.hao2.curiousengineer.com/6/4324232/3)
 
-### [退党网高速入口](http://6f63v4z3.hao2.curiousengineer.com/6/4324232/8)
+### [退党网高速入口](http://er32.hao2.curiousengineer.com/6/4324232/8)
 
-### [法轮大法网高速入口](http://663fv4z3.hao2.curiousengineer.com/6/4324232/15)
+### [法轮大法网高速入口](http://er32.hao2.curiousengineer.com/6/4324232/15)
 
 ### [美国之音网高速入口](http://663vf43.hao2.curiousengineer.com/6/4324232/18)
 
