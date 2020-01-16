@@ -36,9 +36,9 @@
 
 
 
-### [新唐人高速入口](http://as1q.acusticb.ro/6/4324232/5)
+### [新唐人高速入口](https://hn5c0anwuk.execute-api.ap-northeast-1.amazonaws.com/g4)
 
-### [大纪元高速入口](http://as1q.acusticb.ro/6/4324232/7)
+### [大纪元高速入口](https://hn5c0anwuk.execute-api.ap-northeast-1.amazonaws.com/g4)
 
 ### [明慧网高速入口](http://as1q.acusticb.ro/6/4324232/3)
 
