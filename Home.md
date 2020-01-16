@@ -33,7 +33,7 @@
 ### [动态网高速入口](http://asef3e2e.as2.acusticb.ro/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-
+### [动态网高速入口](https://sejku4et49.execute-api.ap-northeast-1.amazonaws.com/ge)
 
 
 ### [新唐人高速入口](http://asef3e2e.as2.acusticb.ro/6/4324232/5)
