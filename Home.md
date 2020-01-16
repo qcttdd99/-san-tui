@@ -28,7 +28,7 @@
 ## 聚缘阁翻墙代理 
 
 
-
+### [聚缘阁禁闻导航](http://uee.me/cQPCH)
 
 ### [动态网高速入口](http://asef3e2e.as2.acusticb.ro/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
