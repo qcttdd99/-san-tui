@@ -35,6 +35,7 @@
 
 ### [动态网高速入口](https://sejku4et49.execute-api.ap-northeast-1.amazonaws.com/ge)
 
+### [禁闻网高速入口](http://uee.me/cQP7W)
 
 ### [新唐人高速入口](http://asef3e2e.as2.acusticb.ro/6/4324232/5)
 
