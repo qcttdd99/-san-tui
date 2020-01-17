@@ -30,23 +30,23 @@
 
 
 
-### [动态网高速入口](http://asef3re2etvr.as2.acusticb.ro/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://asefr3re2etvr.as2.acusticb.ro/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 ### [动态网高速入口](https://sejku4et49r.execute-api.ap-northeast-1.amazonaws.com/ge)
 
 
-### [新唐人高速入口](http://arsef3e2etvr.as2.acusticb.ro/6/4324232/5)
+### [新唐人高速入口](http://arsef3er2etvr.as2.acusticb.ro/6/4324232/5)
 
-### [大纪元高速入口](http://asref3e2etvr.as2.acusticb.ro/6/4324232/7)
+### [大纪元高速入口](http://asref3re2etvr.as2.acusticb.ro/6/4324232/7)
 
-### [明慧网高速入口](http://asref3e2etvr.as2.acusticb.ro/6/4324232/3)
+### [明慧网高速入口](http://asref3re2etvr.as2.acusticb.ro/6/4324232/3)
 
-### [退党网高速入口](http://arsef3e2etvr.as2.acusticb.ro/6/4324232/8)
+### [退党网高速入口](http://arsef3re2etvr.as2.acusticb.ro/6/4324232/8)
 
-### [法轮大法网高速入口](http://arsef3e2etvr.as1.acusticb.ro/6/4324232/15)
+### [法轮大法网高速入口](http://arsef3re2etvr.as1.acusticb.ro/6/4324232/15)
 
-### [美国之音网高速入口](http://asef3re2etv.as1.acusticb.ro/6/4324232/18)
+### [美国之音网高速入口](http://asef3rre2etv.as1.acusticb.ro/6/4324232/18)
 
 
 
