@@ -32,6 +32,8 @@
 
 ### [动态网高速入口](http://a33e3ed.n4r.netlord.de/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [动态网加密入口](http://g2.gremojadrat.net)
+
 ### [禁闻网高速入口](http://uee.me/cQP7W)
 
 ### [新唐人高速入口](http://a333red.n4r.netlord.de/6/4324232/5)
