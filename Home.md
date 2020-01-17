@@ -27,8 +27,7 @@
 
 ## 聚缘阁翻墙代理 
 
-
-
+### [聚缘阁禁闻导航](http://a33e3ed.n4r.netlord.de/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [动态网高速入口](http://a33e3ed.n4r.netlord.de/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
