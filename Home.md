@@ -30,7 +30,7 @@
 
 
 
-### [动态网高速入口](http://a33e3ed.as2.acusticb.ro/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://a33e3ed.n4r.netlord.de/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
