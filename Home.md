@@ -30,21 +30,21 @@
 
 
 
-### [动态网高速入口](http://a33e3e.as2.acusticb.ro/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://a33e3ed.as2.acusticb.ro/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
-### [新唐人高速入口](http://a333re.n4r.netlord.de/6/4324232/5)
+### [新唐人高速入口](http://a333red.n4r.netlord.de/6/4324232/5)
 
-### [大纪元高速入口](http://a233e2.n4r.netlord.de/6/4324232/7)
+### [大纪元高速入口](http://a233e2d.n4r.netlord.de/6/4324232/7)
 
-### [明慧网高速入口](http://ac4cde.n4r.netlord.de/6/4324232/3)
+### [明慧网高速入口](http://ac4cded.n4r.netlord.de/6/4324232/3)
 
-### [退党网高速入口](http://a1234e.n4r.netlord.de/6/4324232/8)
+### [退党网高速入口](http://a1234ed.n4r.netlord.de/6/4324232/8)
 
-### [法轮大法网高速入口](http://a1q4we.n4r.netlord.de/6/4324232/15)
+### [法轮大法网高速入口](http://a1q4wed.n4r.netlord.de/6/4324232/15)
 
-### [美国之音网高速入口](http://as3343ve.n4r.netlord.de/6/4324232/18)
+### [美国之音网高速入口](http://as3343ved.n4r.netlord.de/6/4324232/18)
 
 
 
