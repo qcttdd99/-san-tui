@@ -32,7 +32,7 @@
 
 ### [动态网高速入口](http://a33e3ed.n4r.netlord.de/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-
+### [禁闻网高速入口](http://uee.me/cQP7W)
 
 ### [新唐人高速入口](http://a333red.n4r.netlord.de/6/4324232/5)
 
