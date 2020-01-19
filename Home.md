@@ -33,7 +33,7 @@
 
 
 
-### [禁闻网高速入口](http://iii75.cn/zDGQME)
+### [禁闻网高速入口](http://uee.me/cQVSN)
 
 ### [新唐人高速入口](http://343e.cd.cyberia.com.ar/6/454232/5)
 
