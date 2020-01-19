@@ -27,25 +27,25 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](http://a33eew.as8.algopointer.com/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [聚缘阁禁闻导航](http://a33eewg.as8.algopointer.com/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](http://a33ee23ed.as8.algopointer.com/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://a33ee23edg.as8.algopointer.com/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
 ### [禁闻网高速入口](http://iii75.cn/zDGQME)
 
-### [新唐人高速入口](http://a333re5d.as8.algopointer.com/6/4324232/5)
+### [新唐人高速入口](http://a333re5dg.as8.algopointer.com/6/4324232/5)
 
-### [大纪元高速入口](http://a2353e2d.as8.algopointer.com/6/4324232/7)
+### [大纪元高速入口](http://a2353e2dg.as8.algopointer.com/6/4324232/7)
 
-### [明慧网高速入口](http://ac54cded.as8.algopointer.com/6/4324232/3)
+### [明慧网高速入口](http://ac54cdedg.as8.algopointer.com/6/4324232/3)
 
-### [退党网高速入口](http://a12354ed.as8.algopointer.com/6/4324232/8)
+### [退党网高速入口](http://a12354edg.as8.algopointer.com/6/4324232/8)
 
-### [法轮大法网高速入口](http://a1q45wed.as8.algopointer.com/6/4324232/15)
+### [法轮大法网高速入口](http://a1q45wged.as8.algopointer.com/6/4324232/15)
 
-### [美国之音网高速入口](http://as33453ved.as8.algopointer.com/6/4324232/18)
+### [美国之音网高速入口](http://as33453gved.as8.algopointer.com/6/4324232/18)
 
 
 
