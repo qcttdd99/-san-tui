@@ -27,25 +27,25 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](http://a33eewg.ser.shekocountryclub.com/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [聚缘阁禁闻导航](http://a33eewge.ser.shekocountryclub.com/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](http://a33ee23edg.ser.shekocountryclub.com/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://a33ee23edeg.ser.shekocountryclub.com/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
 ### [禁闻网高速入口](http://iii75.cn/zDGQME)
 
-### [新唐人高速入口](http://a333re5dg.ser.shekocountryclub.com/6/4324232/5)
+### [新唐人高速入口](http://a333re5edg.ser.shekocountryclub.com/6/4324232/5)
 
-### [大纪元高速入口](http://a2353e2dg.ser.shekocountryclub.com/6/4324232/7)
+### [大纪元高速入口](http://a2353e2deg.ser.shekocountryclub.com/6/4324232/7)
 
-### [明慧网高速入口](http://ac54cdedg.ser.shekocountryclub.com/6/4324232/3)
+### [明慧网高速入口](http://ac54cdeedeg.ser.shekocountryclub.com/6/4324232/3)
 
-### [退党网高速入口](http://a12354edg.ser.shekocountryclub.com/6/4324232/8)
+### [退党网高速入口](http://a12354edge.ser.shekocountryclub.com/6/4324232/8)
 
-### [法轮大法网高速入口](http://a1q45wged.ser.shekocountryclub.com/6/4324232/15)
+### [法轮大法网高速入口](http://a1q45wgede.ser.shekocountryclub.com/6/4324232/15)
 
-### [美国之音网高速入口](http://as33453gved.ser.shekocountryclub.com/6/4324232/18)
+### [美国之音网高速入口](http://as33453gved4.ser.shekocountryclub.com/6/4324232/18)
 
 
 
