@@ -27,25 +27,25 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](http://a33e3ed.n4r.netlord.de/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [聚缘阁禁闻导航](http://a33eew.n4r.netlord.de/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](http://a33e3ed.n4r.netlord.de/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://a33ee23ed.n4r.netlord.de/6/4324232/543)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [动态网加密入口](http://g2.gremojadrat.net)
+
 
 ### [禁闻网高速入口](http://uee.me/cQP7W)
 
-### [新唐人高速入口](http://a333red.n4r.netlord.de/6/4324232/5)
+### [新唐人高速入口](http://a333re5d.n4r.netlord.de/6/4324232/5)
 
-### [大纪元高速入口](http://a233e2d.n4r.netlord.de/6/4324232/7)
+### [大纪元高速入口](http://a2353e2d.n4r.netlord.de/6/4324232/7)
 
-### [明慧网高速入口](http://ac4cded.n4r.netlord.de/6/4324232/3)
+### [明慧网高速入口](http://ac54cded.n4r.netlord.de/6/4324232/3)
 
-### [退党网高速入口](http://a1234ed.n4r.netlord.de/6/4324232/8)
+### [退党网高速入口](http://a12354ed.n4r.netlord.de/6/4324232/8)
 
-### [法轮大法网高速入口](http://a1q4wed.n4r.netlord.de/6/4324232/15)
+### [法轮大法网高速入口](http://a1q45wed.n4r.netlord.de/6/4324232/15)
 
-### [美国之音网高速入口](http://as3343ved.n4r.netlord.de/6/4324232/18)
+### [美国之音网高速入口](http://as33453ved.n4r.netlord.de/6/4324232/18)
 
 
 
