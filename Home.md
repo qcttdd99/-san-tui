@@ -27,25 +27,25 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁网导航](http://343yes4ge.cd.cyberia.com.ar/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [聚缘阁禁网导航](http://hao.lu.lagimodiere.ca/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](http://3453ee4s.cd.cyberia.com.ar/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://hao.lu.lagimodiere.ca/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
 ### [禁闻网高速入口](http://uee.me/cQVSN)
 
-### [新唐人高速入口](http://343e4.cd.cyberia.com.ar/6/454232/5)
+### [新唐人高速入口](http://hao.lu.lagimodiere.ca/6/454232/5)
 
-### [大纪元高速入口](http://fg1we4w.cd.cyberia.com.ar/6/454232/7)
+### [大纪元高速入口](http://hao.lu.lagimodiere.ca/6/454232/7)
 
-### [明慧网高速入口](http://3r7e4w.cd.cyberia.com.ar/6/454232/3)
+### [明慧网高速入口](http://hao.lu.lagimodiere.ca/6/454232/3)
 
-### [退党网高速入口](http://332e4.cd.cyberia.com.ars/6/454232/8)
+### [退党网高速入口](http://hao.lu.lagimodiere.ca/6/454232/8)
 
-### [法轮大法网高速入口](http://34674ew.cd.cyberia.com.ar/6/5232/15)
+### [法轮大法网高速入口](http://hao.lu.lagimodiere.ca/6/5232/15)
 
-### [美国之音网高速入口](http://331ew4y.cd.cyberia.com.ar/6/5232/18)
+### [美国之音网高速入口](http://hao.lu.lagimodiere.ca/6/5232/18)
 
 
 
