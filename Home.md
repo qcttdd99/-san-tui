@@ -31,7 +31,7 @@
 
 ### [动态网高速入口](http://df3.docseg.com.ar/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-
+### [禁闻网高速入口](http://uee.me/cQXp4)
 
 ### [新唐人高速入口](http://df3.docseg.com.ar/6/454232/5)
 
