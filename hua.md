@@ -1,2 +1,2 @@
-http://san4.hua.midnightchannel.net/
+http://san4a.hua.midnightchannel.net/
 
