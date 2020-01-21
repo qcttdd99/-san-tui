@@ -27,7 +27,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁网导航](http://df3.op.ostrovsky.skt/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [聚缘阁禁网导航](http://df3.op.ostrovsky.sk/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [动态网高速入口](http://df3.op.ostrovsky.sk/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
