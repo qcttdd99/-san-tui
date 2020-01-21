@@ -27,21 +27,21 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁网导航](http://df3.a223.aarachne.at/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [聚缘阁禁网导航](http://df3.op.ostrovsky.skt/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](http://df3.a223.aarachne.at/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://df3.op.ostrovsky.sk/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](http://df3.a223.aarachne.at/6/454232/5)
+### [新唐人高速入口](http://df3.op.ostrovsky.sk/6/454232/5)
 
-### [大纪元高速入口](http://df3.a223.aarachne.at/6/454232/7)
+### [大纪元高速入口](http://df3.op.ostrovsky.sk/6/454232/7)
 
-### [明慧网高速入口](http://df3.a223.aarachne.at/6/454232/3)
+### [明慧网高速入口](http://df3.op.ostrovsky.sk/6/454232/3)
 
-### [退党网高速入口](http://df3.a223.aarachne.at/6/454232/8)
+### [退党网高速入口](http://df3.op.ostrovsky.sk/6/454232/8)
 
-### [法轮大法网高速入口](http://df3.a223.aarachne.at/6/5232/15)
+### [法轮大法网高速入口](http://df3.op.ostrovsky.sk/6/5232/15)
 
-### [美国之音网高速入口](http://df3.a223.aarachne.at/6/5232/18)
+### [美国之音网高速入口](http://df3.op.ostrovsky.sk/6/5232/18)
 
 
 
