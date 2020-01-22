@@ -27,7 +27,7 @@
 
 ## 聚缘阁翻墙代理 
 
-
+### [聚缘阁禁闻导航](http://df3.sas.stufftoddknows.com/dh/)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [动态网高速入口](http://df3.sas.stufftoddknows.com/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
