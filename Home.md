@@ -27,21 +27,21 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁网导航](http://df3.op.ostrovsky.sk/dh)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
-### [动态网高速入口](http://df3.op.ostrovsky.sk/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人高速入口](http://df3.op.ostrovsky.sk/6/454232/5)
+### [动态网高速入口](http://df3.sas.stufftoddknows.com/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [大纪元高速入口](http://df3.op.ostrovsky.sk/6/454232/7)
+### [新唐人高速入口](http://df3.sas.stufftoddknows.com/6/454232/5)
 
-### [明慧网高速入口](http://df3.op.ostrovsky.sk/6/454232/3)
+### [大纪元高速入口](http://df3.sas.stufftoddknows.com/6/454232/7)
 
-### [退党网高速入口](http://df3.op.ostrovsky.sk/6/454232/8)
+### [明慧网高速入口](http://df3.sas.stufftoddknows.com/6/454232/3)
 
-### [法轮大法网高速入口](http://df3.op.ostrovsky.sk/6/5232/15)
+### [退党网高速入口](http://df3.sas.stufftoddknows.com/6/454232/8)
 
-### [美国之音网高速入口](http://df3.op.ostrovsky.sk/6/5232/18)
+### [法轮大法网高速入口](http://df3.sas.stufftoddknows.com/6/5232/15)
+
+### [美国之音网高速入口](http://df3.sas.stufftoddknows.com/6/5232/18)
 
 
 
