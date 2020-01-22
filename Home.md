@@ -31,6 +31,8 @@
 
 ### [动态网高速入口](http://df3.rt5.rigdirt.com/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
+### [禁闻网高速入口](https://lvfoxy9qf0.execute-api.ap-northeast-1.amazonaws.com/va)
+
 ### [新唐人高速入口](http://df3.rt5.rigdirt.com/6/454232/5)
 
 ### [大纪元高速入口](http://df3.rt5.rigdirt.com/6/454232/7)
