@@ -23,13 +23,13 @@
 ***
 
 聚缘阁恭祝大家新年好！
-请到这里来看新唐人全球华人晚会
+
 
 
 
 ## 聚缘阁翻墙代理 
 
-### [新唐人全球华人晚会](http://df3.rt5.rigdirt.com/dh/)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
+### [新唐人网络直播](http://df3.rt5.rigdirt.com/dh/)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [动态网高速入口](http://df3.rt5.rigdirt.com/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
