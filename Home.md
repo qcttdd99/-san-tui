@@ -29,7 +29,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [不断更新-关注疫情-在国内看不到的疫情视频锦集](http://jyg2.15bg172.am/)
+### [不断更新-关注疫情-在国内看不到的疫情视频锦集](http://jyg2.15bg172.am/t-22-58)
 
 ### [新唐人网络直播](http://df3.rt5.rigdirt.com/dh/)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
