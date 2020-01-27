@@ -31,9 +31,7 @@
 
 ### [不断更新-关注疫情-在国内看不到的疫情视频锦集](http://285.26268888.com)
 
-以下直播最好在电脑上观看，手机上可以使用360浏览器，QQ浏览器观看，但不支持UC浏览器
 
-### [【互动直播】1.27武汉肺炎疫情最新数据情況](http://ntd.15bg172.am)
 
 ### [新唐人网络直播](http://df3.rt5.rigdirt.com/dh/)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
