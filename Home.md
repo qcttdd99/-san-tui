@@ -31,6 +31,8 @@
 
 ### [不断更新-关注疫情-在国内看不到的疫情视频锦集](http://285.26268888.com)
 
+### [【互动直播】1.27武汉肺炎疫情最新数据情況](http://ntd.15bg172.am)
+
 ### [新唐人网络直播](http://df3.rt5.rigdirt.com/dh/)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [动态网高速入口](http://df3.rt5.rigdirt.com/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
