@@ -31,7 +31,7 @@
 
 ### [不断更新-关注疫情-在国内看不到的疫情视频锦集](http://285.26268888.com)
 
-
+### [自制镜像-聚缘阁禁闻导航代码下载](http://df3.rt5.rigdirt.com/dh.zip)
 
 ### [新唐人网络直播](http://df3.rt5.rigdirt.com/dh/)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
