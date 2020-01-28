@@ -33,7 +33,7 @@
 
 ### [自制镜像-聚缘阁禁闻导航代码下载](http://df3.rt5.rigdirt.com/dh.zip)
 
-### [动态网加密入口](http://eu.15bg172.am/2020/128)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](http://peu.planningramps.uk/2020/128)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [新唐人网络直播](http://df3.rt5.rigdirt.com/dh/)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
