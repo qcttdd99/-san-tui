@@ -33,6 +33,7 @@
 
 ### [聚缘阁禁闻导航](http://df3.rt5.rigdirt.com/dh)
 
+### [动态网加密入口](http://df3.rt5.rigdirt.com/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [动态网高速入口](http://df3.rt5.rigdirt.com/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
