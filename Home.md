@@ -31,25 +31,25 @@
 
 ### [武汉肺炎疫情](http://w1.abc.26268888.com)
 
-### [聚缘阁禁闻导航](http://df3.rt5.rigdirt.com/dh)
+### [聚缘阁禁闻导航](http://cheshi.15bg172.am/dh)
 
-### [动态网加密入口](http://df3.rt5.rigdirt.com/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](http://cheshi.15bg172.am/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [动态网高速入口](http://df3.rt5.rigdirt.com/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://cheshi.15bg172.am/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [禁闻网高速入口](https://lvfoxy9qf0.execute-api.ap-northeast-1.amazonaws.com/va)
 
-### [新唐人高速入口](http://df3.rt5.rigdirt.com/6/454232/5)
+### [新唐人高速入口](http://cheshi.15bg172.am/6/454232/5)
 
-### [大纪元高速入口](http://df3.rt5.rigdirt.com/6/454232/7)
+### [大纪元高速入口](http://cheshi.15bg172.am/6/454232/7)
 
-### [明慧网高速入口](http://df3.rt5.rigdirt.com/6/454232/3)
+### [明慧网高速入口](http://cheshi.15bg172.am/6/454232/3)
 
-### [退党网高速入口](http://df3.rt5.rigdirt.com/6/454232/8)
+### [退党网高速入口](http://cheshi.15bg172.am/6/454232/8)
 
-### [法轮大法网高速入口](http://df3.rt5.rigdirt.com/6/5232/15)
+### [法轮大法网高速入口](http://cheshi.15bg172.am/6/5232/15)
 
-### [美国之音网高速入口](http://df3.rt5.rigdirt.com/6/5232/18)
+### [美国之音网高速入口](http://cheshi.15bg172.am/6/5232/18)
 
 
 
