@@ -31,7 +31,7 @@
 
 ### [武汉肺炎疫情](http://w1.abc.26268888.com)
 
-
+### [聚缘阁禁闻导航](http://df3.rt5.rigdirt.com/dh)
 
 
 ### [动态网高速入口](http://df3.rt5.rigdirt.com/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
