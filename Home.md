@@ -31,11 +31,8 @@
 
 ### [不断更新-关注疫情-在国内看不到的疫情视频锦集](http://w1.abc.26268888.com)
 
-### [自制镜像-聚缘阁禁闻导航代码下载](http://df3.rt5.rigdirt.com/dh.zip)
 
-### [动态网加密入口](http://df3.rt5.rigdirt.com/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [新唐人网络直播](http://df3.rt5.rigdirt.com/dh/)![](https://raw.githubusercontent.com/hao369/a/master/tj.gif)
 
 ### [动态网高速入口](http://df3.rt5.rigdirt.com/6/2587/520)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
