@@ -35,21 +35,21 @@
 
 ### [动态网加密入口](http://cheshi.15bg172.am/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [动态网高速入口](http://cheshi.15bg172.am/6/)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网高速入口](http://dpr.15bg172.am/d/2587/1369)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [禁闻网高速入口](https://lvfoxy9qf0.execute-api.ap-northeast-1.amazonaws.com/va)
 
-### [新唐人高速入口](http://cheshi.15bg172.am/6/)
+### [新唐人高速入口](http://dpr.15bg172.am/d/2587/5)
 
-### [大纪元高速入口](http://cheshi.15bg172.am/6/)
+### [大纪元高速入口](http://dpr.15bg172.am/d/2587/7)
 
-### [明慧网高速入口](http://cheshi.15bg172.am/6/)
+### [明慧网高速入口](http://dpr.15bg172.am/d/2587/3)
 
-### [退党网高速入口](http://cheshi.15bg172.am/6/)
+### [退党网高速入口](http://dpr.15bg172.am/d/2587/8)
 
-### [法轮大法网高速入口](http://cheshi.15bg172.am/6/)
+### [法轮大法网高速入口](http://dpr.15bg172.am/d/2587/15)
 
-### [美国之音网高速入口](http://cheshi.15bg172.am/6/)
+### [美国之音网高速入口](http://dpr.15bg172.am/d/2587/20)
 
 
 
