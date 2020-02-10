@@ -37,7 +37,7 @@
 
 ### [动态网高速入口](http://cheshi.15bg172.am/6)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [禁闻网高速入口](https://lvfoxy9qf0.execute-api.ap-northeast-1.amazonaws.com/va)
+### [禁闻网高速入口](https://ash6wn5lka.execute-api.ap-northeast-1.amazonaws.com/cxz)
 
 ### [新唐人高速入口](http://cheshi.15bg172.am/6)
 
