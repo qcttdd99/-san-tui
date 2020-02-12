@@ -29,7 +29,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [默念法轮大法好，上天赐你平安福](http://euu3.15bg172.am)
+### [默念法轮大法好，上天赐你平安福](http://a2.njy.naturalie.net)
 
 ### [聚缘阁禁闻导航](http://cheshi2.pu.parkibo.com/dh)
 
