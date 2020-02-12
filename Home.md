@@ -31,23 +31,23 @@
 
 ### [默念法轮大法好，上天赐你平安福](http://w1.abc.26268888.com)
 
-### [聚缘阁禁闻导航](http://cheshi.15bg172.am/dh)
+### [聚缘阁禁闻导航](http://cheshi.pu.parkibo.com/dh)
 
-### [动态网加密入口](http://cheshi.15bg172.am/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](http://cheshi.pu.parkibo.com/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [禁闻网高速入口](https://ash6wn5lka.execute-api.ap-northeast-1.amazonaws.com/cxz)
 
-### [新唐人高速入口](http://cheshi.15bg172.am/65/jyg/5)
+### [新唐人高速入口](http://cheshi.pu.parkibo.com/65/jyg/5)
 
-### [大纪元高速入口](http://cheshi.15bg172.am/65/jyg/7)
+### [大纪元高速入口](http://cheshi.pu.parkibo.com/65/jyg/7)
 
-### [明慧网高速入口](http://cheshi.15bg172.am/65/jyg/3)
+### [明慧网高速入口](http://cheshi.pu.parkibo.com/65/jyg/3)
 
-### [退党网高速入口](http://cheshi.15bg172.am/65/jyg/8)
+### [退党网高速入口](http://cheshi.pu.parkibo.com/65/jyg/8)
 
-### [法轮大法网高速入口](http://cheshi.15bg172.am/65/jyg/15)
+### [法轮大法网高速入口](http://cheshi.pu.parkibo.com/65/jyg/15)
 
-### [美国之音网高速入口](http://cheshi.15bg172.am/65/jyg/18)
+### [美国之音网高速入口](http://cheshi.pu.parkibo.com/65/jyg/18)
 
 
 
