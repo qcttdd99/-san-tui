@@ -35,7 +35,7 @@
 
 ### [动态网加密入口](http://cheshi2.pu.parkibo.com/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [禁闻网高速入口](https://ash6wn5lka.execute-api.ap-northeast-1.amazonaws.com/cxz)
+### [禁闻网高速入口](https://5jhggf4x1j.execute-api.ap-northeast-1.amazonaws.com/4456)
 
 ### [新唐人高速入口](http://cheshi2.pu.parkibo.com/65/jyg/5)
 
