@@ -29,13 +29,13 @@
 
 ## 聚缘阁翻墙代理 
 
-### [默念法轮大法好，上天赐你平安福](http://a2.njy.naturalie.net)
+### [默念法轮大法好，上天赐你平安福](http://fa3.fve75.xyz/jyg2)
 
 ### [聚缘阁禁闻导航](https://gha.6z1jh.xyz/dh)
 
 ### [动态网加密入口](https://gha.6z1jh.xyz/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [禁闻网高速入口](https://5jhggf4x1j.execute-api.ap-northeast-1.amazonaws.com/4456)
+### [禁闻网高速入口](http://fa3.fve75.xyz/ban)
 
 ### [新唐人高速入口](https://gha.6z1jh.xyz/65/jyg/5)
 
