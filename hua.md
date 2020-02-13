@@ -1,2 +1,2 @@
-http://9632.hua.midnightchannel.net/
+https://hua99.6z1jh.xyz
 
