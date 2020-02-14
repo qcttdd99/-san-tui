@@ -29,25 +29,25 @@
 
 ## 聚缘阁翻墙代理 
 
-### [默念法轮大法好，上天赐你平安福](http://fa3.tb.theinsidecompany.com/jyg2)
+### [默念法轮大法好，上天赐你平安福](http://44r.jd4.fun/jyg2)
 
-### [聚缘阁禁闻导航](http://ghaa.tb.theinsidecompany.com/dh)
+### [聚缘阁禁闻导航](http://44r.jd4.fun/dh)
 
-### [动态网加密入口](http://ghad.tb.theinsidecompany.com/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](http://44r.jd4.fun/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [禁闻网高速入口](http://ghae.tb.theinsidecompany.com/ban)
+### [禁闻网高速入口](http://44r.jd4.fun/ban)
 
-### [新唐人高速入口](http://ghaw.tb.theinsidecompany.com/65/jyg/5)
+### [新唐人高速入口](http://44r.jd4.fun/65/jyg/5)
 
-### [大纪元高速入口](http://gha4.tb.theinsidecompany.com/65/jyg/7)
+### [大纪元高速入口](http://44r.jd4.fun/65/jyg/7)
 
-### [明慧网高速入口](http://gha5.tb.theinsidecompany.com/65/jyg/3)
+### [明慧网高速入口](http://44r.jd4.fun/65/jyg/3)
 
-### [退党网高速入口](http://gha3.tb.theinsidecompany.com/65/jyg/8)
+### [退党网高速入口](http://44r.jd4.fun/65/jyg/8)
 
-### [法轮大法网高速入口](http://gha4hj.tb.theinsidecompany.com/65/jyg/15)
+### [法轮大法网高速入口](http://44r.jd4.fun/65/jyg/15)
 
-### [美国之音网高速入口](http://ghadw.tb.theinsidecompany.com/65/jyg/18)
+### [美国之音网高速入口](http://44r.jd4.fun/65/jyg/18)
 
 
 
