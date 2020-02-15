@@ -37,9 +37,11 @@
 
 ### [禁闻网高速入口](https://jiu44.jd4.fun/ban)
 
-### [新唐人高速入口](https://jiu44.jd4.fun/65/jyg/5)
+### [新唐人高速入口](https://jiu44.jd4.fun/ssl/jyg/5)
 
-### [大纪元高速入口](https://jiu44.jd4.fun/65/jyg/7)
+### [大纪元高速入口](https://jiu44.jd4.fun/ssl/jyg/7)
+
+### [退党网高速入口](https://jiu44.jd4.fun/ssl/jyg/8)
 
 
 
