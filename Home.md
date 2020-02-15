@@ -33,7 +33,7 @@
 
 ### [聚缘阁禁闻导航](https://jiu44.jd4.fun/dh)
 
-### [动态网加密入口](https://jiu44.jd4.fun/65/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](https://jiu44.jd4.fun/ssl/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 ### [禁闻网高速入口](https://jiu44.jd4.fun/ban)
 
