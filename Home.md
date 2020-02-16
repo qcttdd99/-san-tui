@@ -29,8 +29,6 @@
 
 ## 聚缘阁翻墙代理 
 
-### [禁闻导航加密站](https://dh99.jd4.fun/d)
-
 ### [聚缘阁禁闻导航](https://jiu44.jd4.fun/dh)
 
 ### [动态网加密入口](https://jiu44.jd4.fun/ssl/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
