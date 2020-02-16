@@ -33,7 +33,7 @@
 
 ### [动态网加密入口](https://jiu44.jd4.fun/ssl/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [动态网高速入口](https://jiu44.jd4.fun/6/jyg/5)
+### [动态网高速入口](https://jiu44.jd4.fun/6/jyg/556)
 
 
 ### [禁闻网高速入口](https://jiu44.jd4.fun/ban)
