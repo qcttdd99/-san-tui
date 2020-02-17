@@ -29,19 +29,19 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](https://h678.fve75.club/dh)
+### [聚缘阁禁闻导航](https://66tz.asaet.gq/d)
 
-### [动态网加密入口](https://hao369.2reat.ml/6/458/888)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](https://66tz.asaet.gq/6/458/888)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
-### [禁闻网高速入口](https://hao369.2reat.ml/ban)
+### [禁闻网高速入口](https://66tz.asaet.gq/ban)
 
-### [新唐人高速入口](https://hao369.2reat.ml/6/458/5)
+### [新唐人高速入口](https://66tz.asaet.gq/6/458/5)
 
-### [大纪元高速入口](https://hao369.2reat.ml/6/458/7)
+### [大纪元高速入口](https://66tz.asaet.gq/6/458/7)
 
-### [退党网高速入口](https://hao369.2reat.ml/6/458/8)
+### [退党网高速入口](https://66tz.asaet.gq/6/458/8)
 
 
 
