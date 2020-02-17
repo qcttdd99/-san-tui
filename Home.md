@@ -34,15 +34,13 @@
 ### [动态网加密入口](https://66tz.asaet.gq/6/458/888)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-
-### [禁闻网高速入口](https://66tz.asaet.gq/ban)
-
 ### [新唐人高速入口](https://66tz.asaet.gq/6/458/5)
 
 ### [大纪元高速入口](https://66tz.asaet.gq/6/458/7)
 
 ### [退党网高速入口](https://66tz.asaet.gq/6/458/8)
 
+### [禁闻网高速入口](https://66tz.asaet.gq/ban)
 
 
 
