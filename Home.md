@@ -29,7 +29,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](https://66tz.asaet.gq/d)
+### [聚缘阁禁闻导航](https://tz.yytu7.tk/dh)
 
 ### [动态网加密入口](https://66tz.asaet.gq/6/458/888)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
