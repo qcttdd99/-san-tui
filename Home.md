@@ -29,7 +29,7 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](https://h678.fve75.club/d)
+### [聚缘阁禁闻导航](https://h678.fve75.club/dh)
 
 ### [动态网加密入口](https://h678.fve75.club/6/)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
