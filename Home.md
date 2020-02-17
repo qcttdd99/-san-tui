@@ -29,20 +29,20 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](https://d994.fve75.club/d)
+### [聚缘阁禁闻导航](https://h678.fve75.club/d)
 
-### [动态网加密入口](https://jiu44.jd4.fun/ssl/jyg/2587)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](https://h678.fve75.club/6/)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
-### [动态网高速入口](https://jiu44.jd4.fun/6/jyg/556)
+### [动态网高速入口](https://h678.fve75.club/6)
 
 
-### [禁闻网高速入口](https://jiu44.jd4.fun/ban)
+### [禁闻网高速入口](https://h678.fve75.club/ban)
 
-### [新唐人高速入口](https://jiu44.jd4.fun/ssl/jyg/5)
+### [新唐人高速入口](https://h678.fve75.club/6)
 
-### [大纪元高速入口](https://jiu44.jd4.fun/ssl/jyg/7)
+### [大纪元高速入口](https://h678.fve75.club/6)
 
-### [退党网高速入口](https://jiu44.jd4.fun/ssl/jyg/8)
+### [退党网高速入口](https://h678.fve75.club/6)
 
 
 
