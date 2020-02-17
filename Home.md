@@ -31,17 +31,17 @@
 
 ### [聚缘阁禁闻导航](https://h678.fve75.club/dh)
 
-### [动态网加密入口](https://a6.bbgtt.ga/6)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](https://hao369.2reat.ml/6/458/888)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
 
-### [禁闻网高速入口](https://a6.bbgtt.ga/ban)
+### [禁闻网高速入口](https://hao369.2reat.ml/ban)
 
-### [新唐人高速入口](https://a6.bbgtt.ga/6)
+### [新唐人高速入口](https://hao369.2reat.ml/6/458/5)
 
-### [大纪元高速入口](https://a6.bbgtt.ga/6)
+### [大纪元高速入口](https://hao369.2reat.ml/6/458/7)
 
-### [退党网高速入口](https://a6.bbgtt.ga/6)
+### [退党网高速入口](https://hao369.2reat.ml/6/458/8)
 
 
 
