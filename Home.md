@@ -8,7 +8,7 @@
 
 ### [聚缘阁禁闻导航](https://hz.cllyu.cf/d)
 
-### [动态网加密入口](https://dz.tzdd.tk/6/458/888)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](https://dz.tzdd.tk/6/458/888)
 
 
 ### [新唐人高速入口](https://dz.tzdd.tk/6/458/5)
