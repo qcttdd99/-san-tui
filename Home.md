@@ -6,18 +6,18 @@
 
 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](https://hz.cllyu.cf/d)
+### [聚缘阁禁闻导航](https://tr.cllyu.cf/d)
 
-### [动态网加密入口](https://dz.tzdd.tk/6/458/888)
+### [动态网加密入口](https://sw.tzdd.tk/6/458/888)
 
 
-### [新唐人高速入口](https://dz.tzdd.tk/6/458/5)
+### [新唐人高速入口](https://sw.tzdd.tk/6/458/5)
 
-### [大纪元高速入口](https://dz.tzdd.tk/6/458/7)
+### [大纪元高速入口](https://sw.tzdd.tk/6/458/7)
 
-### [退党网高速入口](https://dz.tzdd.tk/6/458/8)
+### [退党网高速入口](https://sw.tzdd.tk/6/458/8)
 
-### [禁闻网高速入口](https://dz.tzdd.tk/ban)
+### [禁闻网高速入口](https://sw.tzdd.tk/ban)
 
 
 
