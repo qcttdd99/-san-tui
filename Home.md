@@ -29,18 +29,18 @@
 
 ## 聚缘阁翻墙代理 
 
-### [聚缘阁禁闻导航](https://rz.cllyu.cf/d)
+### [聚缘阁禁闻导航](https://hz.cllyu.cf/d)
 
-### [动态网加密入口](https://66tz.asaet.gq/6/458/888)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
+### [动态网加密入口](https://dz.tzdd.tk/6/458/888)![](https://raw.githubusercontent.com/hao369/a/master/jygdl.gif)
 
 
-### [新唐人高速入口](https://66tz.asaet.gq/6/458/5)
+### [新唐人高速入口](https://dz.tzdd.tk/6/458/5)
 
-### [大纪元高速入口](https://66tz.asaet.gq/6/458/7)
+### [大纪元高速入口](https://dz.tzdd.tk/6/458/7)
 
-### [退党网高速入口](https://66tz.asaet.gq/6/458/8)
+### [退党网高速入口](https://dz.tzdd.tk/6/458/8)
 
-### [禁闻网高速入口](https://66tz.asaet.gq/ban)
+### [禁闻网高速入口](https://dz.tzdd.tk/ban)
 
 
 
