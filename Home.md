@@ -30,6 +30,9 @@
 
 ### [24小时实事禁闻](https://git.io/fj3Go)
 
+### [大纪元实事新闻](https://git.io/fjmgE)
+
+
 ### [禁书在线阅读](https://github.com/txyzum203/djy/blob/master/gb/9p.md?flntdtv#1)
 
 
@@ -37,7 +40,6 @@
 
 ### [全球禁闻聚合](https://github.com/gfw-breaker/banned-news1/blob/master/README.md)
 
-### [大纪元实事新闻](https://git.io/fjmgE)
 
 
 
