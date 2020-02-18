@@ -1,4 +1,3 @@
-https://raw.githubusercontent.com/hao369/a/master/j.jpg)
 
 ## 轻松翻墙、从聚缘阁开始
 
