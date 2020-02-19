@@ -11,11 +11,11 @@
 ### [动态网加密入口](https://rt.b82ka.club/6/458/888)
 
 
-### [新唐人高速入口](https://jw.b82ka.club/6/uua/5)
+### [新唐人高速入口](https://ol.b82ka.club/6/uua/5)
 
-### [大纪元高速入口](https://jw.b82ka.club/6/uua/7)
+### [大纪元高速入口](https://ol.b82ka.club/6/uua/7)
 
-### [退党网高速入口](https://jw.b82ka.club/6/uua/8)
+### [退党网高速入口](https://op.b82ka.club/6/uua/8)
 
 ### [禁闻网高速入口](https://asd3.tzvc.tk/ban/uut)
 
