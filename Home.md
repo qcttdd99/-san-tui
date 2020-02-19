@@ -18,7 +18,7 @@
 
 ### [退党网高速入口](https://op.b82ka.club/6/uua/8)
 
-### [禁闻网高速入口](https://asd3.tzvc.tk/ban/uut)
+### [禁闻网高速入口](https://uu.b82ka.club/ban/uut)
 
 
 
