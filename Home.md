@@ -7,7 +7,7 @@
 聚缘阁翻墙代理 
 
 
-### [动态网加密入口](https://br.tzaq3.cf/dh)
+### [聚缘阁禁闻导航](https://br.tzaq3.cf/dh)
 
 ### [动态网加密入口](https://rt.b82ka.club/6/458/888)
 
