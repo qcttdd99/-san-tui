@@ -2,7 +2,7 @@
 ## 轻松翻墙、从聚缘阁开始
 
 
-
+[聚缘阁代理安卓版下载](https://gitlab.com/juyuange/2/-/raw/master/jyg.apk)
 
 聚缘阁翻墙代理 
 
