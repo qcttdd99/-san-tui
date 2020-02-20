@@ -7,7 +7,7 @@
 聚缘阁翻墙代理 
 
 
-### [聚缘阁禁闻导航](https://zl.b82ka.club/d/github.com/)
+### [聚缘阁禁闻导航](https://zl.b82ka.club/d/?github.com/)
 
 ### [动态网加密入口](https://zt.b82ka.club/6/458/888)
 
