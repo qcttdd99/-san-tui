@@ -8,15 +8,14 @@
 
 
 
+### [动态网加密入口](https://ht.tzaq3.cf/6/?5874)
 
-### [动态网加密入口](https://er.b82ka.club/6/963/123)
 
+### [新唐人高速入口](https://ht.tzaq3.cf/6/?5874)
 
-### [新唐人高速入口](https://er.b82ka.club/6/tott/5)
+### [大纪元高速入口](https://ht.tzaq3.cf/6/?5874)
 
-### [大纪元高速入口](https://er.b82ka.club/6/tott/7)
-
-### [退党网高速入口](https://er.b82ka.club/6/tott/8)
+### [退党网高速入口](https://ht.tzaq3.cf/6/?5874)
 
 ### [禁闻网高速入口](https://er.b82ka.club/ban/uut)
 
