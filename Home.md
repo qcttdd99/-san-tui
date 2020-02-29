@@ -7,12 +7,12 @@
 聚缘阁翻墙代理 
 
 
-### [动态网加密入口](https://aa.b82ka.club/c/hao/123)
+### [动态网加密入口](https://ht.tzaq3.cf/6/?5874)
 
 
-### [新唐人高速入口](https://aa.b82ka.club/c/hao/5)
+### [新唐人高速入口](https://ht.tzaq3.cf/6/?5874)
 
-### [大纪元高速入口](https://aa.b82ka.club/c/hao/7)
+### [大纪元高速入口](https://ht.tzaq3.cf/6/?5874)
 
 ### [退党网高速入口](https://ht.tzaq3.cf/6/?5874)
 
