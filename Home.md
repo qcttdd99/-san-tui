@@ -8,12 +8,12 @@
 
 ### [法轮功纽约游行 传递救世良方【多图】](https://zr.tzbf.gq/jyg2)
 
-### [动态网加密入口](http://cs99a.jd4.fun/atucoewl/ahewoewsge/55654)
+### [动态网加密入口](https://ht.tzaq3.cf/6/?5874)
 
 
-### [新唐人高速入口](http://cs99a.jd4.fun/atucoewl/ahewoewsge/5)
+### [新唐人高速入口](https://ht.tzaq3.cf/6/?5874)
 
-### [大纪元高速入口](http://cs99a.jd4.fun/atucoewl/ahewoewsge/7)
+### [大纪元高速入口](https://ht.tzaq3.cf/6/?5874)
 
 ### [退党网高速入口](https://ht.tzaq3.cf/6/?5874)
 
