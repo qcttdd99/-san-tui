@@ -8,6 +8,8 @@
 
 ### [法轮功纽约游行 传递救世良方【多图】](https://zr.tzbf.gq/jyg2)
 
+### [聚缘阁禁闻导航](https://ht.tzaq3.cf/6/?5874)
+
 ### [动态网加密入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/547)
 
 
@@ -15,7 +17,7 @@
 
 ### [大纪元高速入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/7)
 
-### [退党网高速入口](https://ht.tzaq3.cf/6/?5874)
+### [退党网高速入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/8)
 
 ### [禁闻网高速入口](https://er.b82ka.club/ban/uut)
 
