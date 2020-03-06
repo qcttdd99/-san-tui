@@ -11,9 +11,9 @@
 ### [动态网加密入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/547)
 
 
-### [新唐人高速入口](https://ht.tzaq3.cf/6/?5874)
+### [新唐人高速入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/5)
 
-### [大纪元高速入口](https://ht.tzaq3.cf/6/?5874)
+### [大纪元高速入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/7)
 
 ### [退党网高速入口](https://ht.tzaq3.cf/6/?5874)
 
