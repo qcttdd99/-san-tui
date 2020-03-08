@@ -10,14 +10,14 @@
 
 ### [聚缘阁禁闻导航](https://ht.tzaq3.cf/6/?5874)
 
-### [动态网加密入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/547)
+### [动态网加密入口](https://ku.gelya.cf/-----https://dt.yytu7.tk/ssl/jy/547)
 
 
-### [新唐人高速入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/5)
+### [新唐人高速入口](https://ku.gelya.cf/-----https://dt.yytu7.tk/ssl/jy/5)
 
-### [大纪元高速入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/7)
+### [大纪元高速入口](https://ku.gelya.cf/-----https://dt.yytu7.tk/ssl/jy/7)
 
-### [退党网高速入口](https://vq.ewwwg.tk/-----https://dt.yytu7.tk/ssl/jy/8)
+### [退党网高速入口](https://ku.gelya.cf/-----https://dt.yytu7.tk/ssl/jy/8)
 
 ### [禁闻网高速入口](https://er.b82ka.club/ban/uut)
 
