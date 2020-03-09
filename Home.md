@@ -28,9 +28,9 @@
 
 
 
-### [24小时实事禁闻](https://git.io/fj3Go)
+### [24小时实事禁闻](https://github.com/bvzsw2079/djy/blob/master/gb/n24hr.md?dfh#1)
 
-### [大纪元实事新闻](https://git.io/fjmgE)
+### [大纪元实事新闻](https://github.com/bvzsw2079/djy/blob/master/gb/nsc413.md?dfh#1)
 
 
 ### [禁书在线阅读](https://github.com/txyzum203/djy/blob/master/gb/9p.md?flntdtv#1)
