@@ -10,16 +10,16 @@
 
 ### [聚缘阁禁闻导航](http://s34.skywalker1980.de)
 
-### [动态网加密入口](https://dd.yytu7.tk/ssl/jy/547)
+### [动态网加密入口](http://s34.skywalker1980.de)
 
 
-### [新唐人高速入口](https://dd.yytu7.tk/ssl/jy/5)
+### [新唐人高速入口](http://s34.skywalker1980.de)
 
-### [大纪元高速入口](https://dd.yytu7.tk/ssl/jy/7)
+### [大纪元高速入口](http://s34.skywalker1980.de)
 
-### [退党网高速入口](https://dd.yytu7.tk/ssl/jy/8)
+### [退党网高速入口](http://s34.skywalker1980.de)
 
-### [禁闻网高速入口](https://er.b82ka.club/ban/uut)
+### [禁闻网高速入口](http://s34.skywalker1980.de)
 
 
 
