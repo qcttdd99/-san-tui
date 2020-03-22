@@ -1,2 +1,2 @@
-https://fg.tz33.ga
+https://ha2.gkyt56.ga
 
