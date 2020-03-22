@@ -10,14 +10,14 @@
 
 ### [聚缘阁禁闻导航](http://s34.skywalker1980.de)
 
-### [动态网加密入口](https://34r.tuhgs.gq/h/hao/555)
+### [动态网加密入口](http://s34.skywalker1980.de)
 
 
-### [新唐人高速入口](https://34r.tuhgs.gq/h/hao/5)
+### [新唐人高速入口](http://s34.skywalker1980.de)
 
-### [大纪元高速入口](https://34r.tuhgs.gq/h/hao/7)
+### [大纪元高速入口](http://s34.skywalker1980.de)
 
-### [退党网高速入口](https://34r.tuhgs.gq/h/hao/58)
+### [退党网高速入口](http://s34.skywalker1980.de)
 
 ### [禁闻网高速入口](https://34r.tuhgs.gq/ban)
 
