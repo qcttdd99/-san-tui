@@ -8,18 +8,18 @@
 
 ### [法轮功纽约游行 传递救世良方【多图】](https://ju7.dfae3.ml/jyg2)
 
-### [聚缘阁禁闻导航](http://s34.skywalker1980.de)
+### [聚缘阁禁闻导航](https://x.co/2244)
 
-### [动态网加密入口](http://s34.skywalker1980.de)
+### [动态网加密入口](https://x.co/2244)
 
 
-### [新唐人高速入口](http://s34.skywalker1980.de)
+### [新唐人高速入口](https://x.co/2244)
 
-### [大纪元高速入口](http://s34.skywalker1980.de)
+### [大纪元高速入口](https://x.co/2244)
 
-### [退党网高速入口](http://s34.skywalker1980.de)
+### [退党网高速入口](https://x.co/2244)
 
-### [禁闻网高速入口](https://34r.tuhgs.gq/ban)
+### [禁闻网高速入口]( https://github.com/fqnews/bnews)
 
 
 
