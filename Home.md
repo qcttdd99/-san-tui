@@ -10,14 +10,14 @@
 
 ### [聚缘阁禁闻导航](https://cc3.dfae3.tk/6/?2579)
 
-### [动态网加密入口](https://cc3.dfae3.tk/6/?2579)
+### [动态网加密入口](https://x.co/2244)
 
 
-### [新唐人高速入口](https://cc3.dfae3.tk/6/?2579)
+### [新唐人高速入口](https://x.co/2244)
 
-### [大纪元高速入口](https://cc3.dfae3.tk/6/?2579)
+### [大纪元高速入口](https://x.co/2244)
 
-### [退党网高速入口](https://cc3.dfae3.tk/6/?2579)
+### [退党网高速入口](https://x.co/2244)
 
 ### [禁闻网高速入口]( https://github.com/fqnews/bnews)
 
