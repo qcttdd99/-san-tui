@@ -8,9 +8,9 @@
 
 ### [法轮功纽约游行 传递救世良方【多图】](https://der.bfety.cf/6)
 
-### [聚缘阁禁闻导航](https://der.bfety.cf/6)
+### [聚缘阁禁闻导航](http://vc.crgeek.net/ccc/ghhtt/45566)
 
-### [动态网加密入口](https://der.bfety.cf/6)
+### [动态网加密入口](http://vc.crgeek.net/ccc/ghhtt/45566)
 
 
 ### [新唐人高速入口](https://der.bfety.cf/6)
