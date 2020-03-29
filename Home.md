@@ -13,11 +13,11 @@
 ### [动态网加密入口](http://vc.crgeek.net/ccc/ghhtt/45566)
 
 
-### [新唐人高速入口](https://der.bfety.cf/6)
+### [新唐人高速入口](http://ee1.ez999.net/6)
 
-### [大纪元高速入口](https://der.bfety.cf/6)
+### [大纪元高速入口](http://ee1.ez999.net/6)
 
-### [退党网高速入口](https://der.bfety.cf/6)
+### [退党网高速入口](http://ee1.ez999.net/6)
 
 ### [禁闻网高速入口]( https://github.com/fqnews/bnews)
 
