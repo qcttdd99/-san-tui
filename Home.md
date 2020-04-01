@@ -10,14 +10,14 @@
 
 ### [聚缘阁禁闻导航](https://dh99.csewe.ga/h)
 
-### [动态网加密入口](https://478.herdg.ga/ccc/ghhtt/45566)
+### [动态网加密入口](https://cc2.easycode.hk/ccc/ghhtt/45566)
 
 
-### [新唐人高速入口](https://478.herdg.ga/ccc/ouu/5)
+### [新唐人高速入口](https://cc2.easycode.hk/ccc/ouu/5)
 
-### [大纪元高速入口](https://478.herdg.ga/ccc/ouu/7)
+### [大纪元高速入口](https://cc2.easycode.hk/ccc/ouu/7)
 
-### [退党网高速入口](https://478.herdg.ga/ccc/ouu/8)
+### [退党网高速入口](https://cc2.easycode.hk/ccc/ouu/8)
 
 ### [禁闻网高速入口]( https://github.com/fqnews/bnews)
 
