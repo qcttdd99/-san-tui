@@ -6,18 +6,18 @@
 
 聚缘阁翻墙代理 
 
-### [法轮功纽约游行 传递救世良方【多图】](https://der.bfety.cf/6)
+### [法轮功纽约游行 传递救世良方【多图】](https://478.herdg.ga/ccc/ouu/20)
 
-### [聚缘阁禁闻导航](http://vc.crgeek.net/ccc/ghhtt/45566)
+### [聚缘阁禁闻导航](https://478.herdg.ga/ccc/ghhtt/45566)
 
-### [动态网加密入口](http://vc.crgeek.net/ccc/ghhtt/45566)
+### [动态网加密入口](https://478.herdg.ga/ccc/ghhtt/45566)
 
 
-### [新唐人高速入口](http://ee1.ez999.net/6)
+### [新唐人高速入口](https://478.herdg.ga/ccc/ouu/5)
 
-### [大纪元高速入口](http://ee1.ez999.net/6)
+### [大纪元高速入口](https://478.herdg.ga/ccc/ouu/7)
 
-### [退党网高速入口](http://ee1.ez999.net/6)
+### [退党网高速入口](https://478.herdg.ga/ccc/ouu/8)
 
 ### [禁闻网高速入口]( https://github.com/fqnews/bnews)
 
