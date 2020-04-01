@@ -8,7 +8,7 @@
 
 ### [法轮功纽约游行 传递救世良方【多图】](https://478.herdg.ga/ccc/ouu/20)
 
-### [聚缘阁禁闻导航](https://478.herdg.ga/ccc/ghhtt/45566)
+### [聚缘阁禁闻导航](https://dh99.csewe.ga/h)
 
 ### [动态网加密入口](https://478.herdg.ga/ccc/ghhtt/45566)
 
