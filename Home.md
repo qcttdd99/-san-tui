@@ -6,7 +6,7 @@
 
 聚缘阁翻墙代理 
 
-### [法轮功纽约游行 传递救世良方【多图】](https://ju8.byrrw.cf/jyg2)
+### [法轮功纽约游行 传递救世良方【多图】](https://ju6.taadw.ml/jyg2)
 
 ### [聚缘阁禁闻导航](https://tty1.byrrw.cf/h)
 
