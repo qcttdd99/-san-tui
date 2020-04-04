@@ -10,14 +10,14 @@
 
 ### [聚缘阁禁闻导航](https://tty1.byrrw.cf/h)
 
-### [动态网加密入口](https://bbg.taadw.ml/ccc/ghhtt/45566)
+### [动态网加密入口](https://uu1.hsre47.cf/ccc/ghhtt/45566)
 
 
-### [新唐人高速入口](https://bbg.taadw.ml/ccc/ouu/5)
+### [新唐人高速入口](https://uu1.hsre47.cf/ccc/ouu/5)
 
-### [大纪元高速入口](https://bbg.taadw.ml/ccc/ouu/7)
+### [大纪元高速入口](https://uu1.hsre47.cf/ccc/ouu/7)
 
-### [退党网高速入口](https://bbg.taadw.ml/ccc/ouu/8)
+### [退党网高速入口](https://uu1.hsre47.cf/ccc/ouu/8)
 
 ### [禁闻网高速入口]( https://github.com/fqnews/bnews)
 
