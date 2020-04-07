@@ -8,16 +8,16 @@
 
 ### [法轮功纽约游行 传递救世良方【多图】](https://ju6.taadw.ml/jyg2)
 
-### [聚缘阁禁闻导航](https://zx2.byrrw.ga/h)
+### [聚缘阁禁闻导航](https://zx3.byrrw.ga/h)
 
-### [动态网加密入口](https://bb1.8etg.ga/ccc/ghhtt/45566)
+### [动态网加密入口](https://bb2.8etg.ga/ccc/ghhtt/45566)
 
 
-### [新唐人高速入口](https://bb1.8etg.ga/ccc/ouu/5)
+### [新唐人高速入口](https://bb2.8etg.ga/ccc/ouu/5)
 
-### [大纪元高速入口](https://bb1.8etg.ga/ccc/ouu/7)
+### [大纪元高速入口](https://bb2.8etg.ga/ccc/ouu/7)
 
-### [退党网高速入口](https://bb1.8etg.ga/ccc/ouu/8)
+### [退党网高速入口](https://bb2.8etg.ga/ccc/ouu/8)
 
 ### [禁闻网高速入口]( https://github.com/fqnews/bnews)
 
