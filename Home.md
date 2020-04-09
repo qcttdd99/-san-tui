@@ -10,7 +10,7 @@
 
 ### [聚缘阁禁闻导航](https://zx3.byrrw.ga/h)
 
-### [动态网加密入口](https://bb2.8etg.ga/ccc/ghhtt/45566)
+### [动态网加密入口](https://j2.rr434.gq/)
 
 
 ### [新唐人高速入口](https://bb2.8etg.ga/ccc/ouu/5)
