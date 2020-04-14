@@ -10,14 +10,14 @@
 
 ### [聚缘阁禁闻导航](https://zx3.byrrw.ga/h)
 
-### [动态网加密入口](https://bb2.8etg.ga/ccc/ouu/5575)
+### [动态网加密入口](https://bb3.8etg.ga/ccc/ouu/5575)
 
 
-### [新唐人高速入口](https://bb2.8etg.ga/ccc/ouu/5)
+### [新唐人高速入口](https://bb3.8etg.ga/ccc/ouu/5)
 
-### [大纪元高速入口](https://bb2.8etg.ga/ccc/ouu/7)
+### [大纪元高速入口](https://bb3.8etg.ga/ccc/ouu/7)
 
-### [退党网高速入口](https://bb2.8etg.ga/ccc/ouu/8)
+### [退党网高速入口](https://bb3.8etg.ga/ccc/ouu/8)
 
 ### [禁闻网高速入口]( https://github.com/fqnews/bnews)
 
