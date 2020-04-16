@@ -2,9 +2,12 @@
 ## 轻松翻墙、从聚缘阁开始
 
 
+
 [聚缘阁代理安卓版下载](https://gitlab.com/juyuange/2/-/raw/master/jyg.apk)
 
 聚缘阁翻墙代理 
+
+### [本站域名](http://x.co/jyg66)
 
 ### [法轮功纽约游行 传递救世良方【多图】](https://ju6.taadw.ml/jyg2)
 
