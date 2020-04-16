@@ -8,6 +8,7 @@
 聚缘阁翻墙代理 
 
 ### 本站域名https://x.co/jyg66
+### 本站域名https://git.io/jyg86
 
 ### [法轮功纽约游行 传递救世良方【多图】](https://ju6.taadw.ml/jyg2)
 
